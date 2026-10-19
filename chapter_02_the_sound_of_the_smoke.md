@@ -568,7 +568,7 @@ Up on the balsam bough, the furious chattering abruptly stopped.
 
 Scar’s tiny, whiskered head tilted ninety degrees to the left. His black eyes locked onto the butternut halves. 
 
-A butternut was the holy grail of northern rodents: sixty percent pure, calorie-dense vegetable fat, rich in proteins, and wrapped in a shell that normally required three hours of relentless gnawing to breach. These halves were already cracked wide open, their creamy, golden meat exposed to the air.
+A butternut was the crowning treasure of northern rodents: sixty percent pure, calorie-dense vegetable fat, rich in proteins, and wrapped in a shell that normally required three hours of relentless gnawing to breach. These halves were already cracked wide open, their creamy, golden meat exposed to the air.
 
 Scar’s tail gave three tentative, rhythmic twitches.
 

@@ -241,7 +241,7 @@ He laid his hand against the steel angle iron.
 
 He felt the cold, crystalline vibration of the metal—the tension, the shear loads, the wind-flutter transmitted down from the canopy. With his Kinap sensitivity, he traced the structural stress lines through the lattice, identifying precisely which diagonal braces were holding the load and which were dead weight.
 
-He did not climb cautiously like an amateur hiker testing each rung with two hands and a prayer.
+He did not climb cautiously like an amateur hiker testing each rung with two hands and nervous hesitation.
 
 Mac ascended the steel lattice with the smooth, terrifying speed of an ape climbing a liana vine. His large, scarred hands closed around the steel angles with absolute, vice-like certainty; his boots found purchase on the rivet heads; his center of mass remained centered squarely over his hips. In forty-five seconds, he was fifty feet above the marsh, standing on a horizontal steel cross-beam eighteen inches wide, with eighty square miles of Acadian wilderness spread out beneath his heels.
 
@@ -496,7 +496,7 @@ He laid his bare palm over the shattered ankle.
 
 He closed his eyes.
 
-He didn't perform an instant miracle. He couldn't magically re-knit shattered bone fragments in three seconds—that was the realm of fairy tales. But what he could do was soothe the raging trauma.
+He didn't perform supernatural sorcery. He couldn't magically re-knit shattered bone fragments in three seconds—that was the realm of fairy tales. But what he could do was soothe the raging trauma.
 
 Mac opened that quiet, boundless reservoir behind his sternum. He pushed a steady, rhythmic pulse of deep, cooling Kinap vitality into the inflamed tissue.
 

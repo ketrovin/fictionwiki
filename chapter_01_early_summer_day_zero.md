@@ -70,7 +70,7 @@ The timber was easily eight hundred pounds. Waterlogged spruce or hemlock that h
 
 Mac set down his ash basket. He rolled his homespun sleeves past his elbows, revealing forearms as thick as stovepipes, corded with brown tendon and hair bleached pale by ten summers of maritime sun.
 
-He did not pray. He did not tighten a weightlifter's belt. He did not breathe through his nose in rapid, theatrical bursts.
+He did not make theatrical incantations. He did not tighten a weightlifter's belt. He did not breathe through his nose in rapid, theatrical bursts.
 
 He merely looked at the hemlock root, decided that it was in his way, and reached down into the red water.
 
@@ -421,7 +421,7 @@ No forks. No silver. Just a clean bone-handled clasp knife and his own broad, cl
 
 Mac sat for a moment in silence.
 
-He bowed his head slightly—not to any church dogma, but in quiet, heartfelt acknowledgement of the fish that had swum up the muddy river, the pig that had provided the salt fat, the black bog that had nourished the cattails and the bakeapples, and the ancient stone beneath his feet that held the roof upright.
+He bowed his head slightly—not to any settler dogma, but in quiet, heartfelt acknowledgement of the fish that had swum up the muddy river, the pig that had provided the salt fat, the black bog that had nourished the cattails and the bakeapples, and the ancient stone beneath his feet that held the roof upright.
 
 "*Netukulimk*," he whispered. "May the harvest sustain the hearth, and may the hearth honor the wood."
 
@@ -622,7 +622,7 @@ Before Vance could reply, a voice spoke from the shadow of the hemlock bluff.
 
 "The prints are fresh because I walked there forty minutes ago," the voice said.
 
-The sound was not loud. It was not shouted. It was a deep, resonant, baritone rumble that seemed to emanate not from a single throat, but from the sandstone cliff face itself, carrying the heavy, acoustic weight of a church bell tolling across an empty harbor.
+The sound was not loud. It was not shouted. It was a deep, resonant, baritone rumble that seemed to emanate not from a single throat, but from the sandstone cliff face itself, carrying the heavy, acoustic weight of an iron fog bell tolling across an empty harbor.
 
 The three scavengers spun around in the red mud, slipping and scrambling on the slick silt.
 
@@ -760,7 +760,7 @@ He pointed his ash staff toward the south, where the abandoned rail corridor ran
 
 The nineteen-year-old kid grabbed the fish from the drift log, clutching the slimy flounder to his chest like bars of gold.
 
-Without another word, the three scavengers turned and bolted down the mud flats, half-running, half-sliding through the red silt, scrambling into the southern woods as if the devil himself were snapping at their heels.
+Without another word, the three scavengers turned and bolted down the mud flats, half-running, half-sliding through the red silt, scrambling into the southern woods as if a pack of starving cougars were snapping at their heels.
 
 The clearing went silent.
 

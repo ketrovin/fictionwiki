@@ -253,7 +253,7 @@ He sat back on the shaving horse, grabbed the two handles of the drawknife, and 
 
 Long, paper-thin curls of creamy white wood peeled off the ash round under the razor edge of the carbon steel blade, curling into tight, springy spirals that piled in a fragrant heap between his boots.
 
-"White ash," Mac explained as the steel sang against the wood. "The ancient Norse called it *Yggdrasil*—the World Tree that binds heaven, earth, and the underworld. The Romans used it for the shafts of their legionary pilum spears. Modern sporting companies made baseball bats and hockey sticks from it until carbon fiber ruined the romance of timber."
+"White ash," Mac explained as the steel sang against the wood. "The ancient Norse called it *Yggdrasil*—the World Tree that binds the sky, the earth, and the roots beneath. The Romans used it for the shafts of their legionary pilum spears. Modern sporting companies made baseball bats and hockey sticks from it until carbon fiber ruined the romance of timber."
 
 He flipped the piece, tapering the lower shaft down to a graceful, octagonal strut.
 
@@ -299,7 +299,7 @@ Mac did not answer immediately.
 
 He pulled the drawknife across the second ash strut, letting two long ribbons of white wood flutter down to the shells. His blue eyes looked out past the living fence, toward the red waters of the river winding through the Acadian hills.
 
-"In the old stories of this valley," Mac said slowly, his voice dropping into that low, resonant register, "the Mi'kmaq spoke of the *Kinap*. Not gods. Not monsters. Simply men upon whom the earth laid an unusual degree of weight and balance. Men who are as strong as they need to be, when the need is real. Men who carry the responsibility of maintaining the peace of the woods."
+"In the old stories of this valley," Mac said slowly, his voice dropping into that low, resonant register, "the Mi'kmaq spoke of the *Kinap*. Not mythical spirits. Not monsters. Simply men upon whom the earth laid an unusual degree of weight and balance. Men who are as strong as they need to be, when the need is real. Men who carry the responsibility of maintaining the peace of the woods."
 
 He looked back at her, his face completely free of bravado.
 
