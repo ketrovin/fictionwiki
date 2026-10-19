@@ -84,10 +84,17 @@ Mac has spent ten patient years establishing this sanctuary on the high ridge ov
 * **First-Tier Keeper's Apartment:**
   * Mac’s **winter home**. Built into the massive four-foot-thick dressed granite base of the tower.
   * Heavily shuttered iron embrasures, heavy cast-iron cooking range, and deep stone thermal mass. Completely immune to Fundy nor'easters, freezing spray, and river ice jams.
-* **The Curving Stair Library:**
+* **The Curving Stair Library & The Rare Book Vault:**
   * The interior spiral stone staircase leading up the tower is lined on the outer curving wall with custom-fitted seasoned timber bookshelves.
   * Hundreds of dry, preserved volumes: classical Latin/Greek texts, botanical encyclopedias, civil engineering folios, OED lexicons, and Terry Pratchett paperbacks.
-  * The rising warmth from the apartment keeps the air dry, protecting paper from Maritime salt humidity.
+  * **The Antiquarian Vault (Rare Books & Folios):**
+    * Mac spent decades as an archivist and collector. His lighthouse preserves the last great antiquarian collection in eastern Canada, stored in zinc-lined cedar chests and dry stone niches:
+      * **Samuel Johnson’s *Dictionary of the English Language* (1755 First Edition, 2 folio volumes in full calfskin).**
+      * **Champlain’s *Voyages* (1613/1632 edition)** with original folding copperplate maps of the Bay of Fundy (*Baie Françoise*) and the red river mouths.
+      * **1730s Acadian Dyke Journals:** Hand-scribed notes detailing *aboiteau* construction (one-way tidal wooden clapper valves) and salt-marsh engineering.
+      * **Gerard’s *Herball* (1633)** and Vitruvius’s *De Architectura* (1567 Venice edition) on hydraulic lime mortar and arches.
+      * **Newton's *Principia* (1726 edition).**
+    * Using his subtle energy manipulation, Mac keeps the stairwell at a perfect, stable microclimate (45% humidity, zero mold or salt damp), ensuring these physical survivors of human civilization outlast the collapse by centuries.
 * **Upper Lantern Gallery & Watchroom:**
   * 360-degree glassed lantern room with brass naval telescope. Unbroken 20-mile surveillance over river channels, highways, and forest lines. Optical shutter signal station.
 
