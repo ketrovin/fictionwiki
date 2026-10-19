@@ -5,7 +5,8 @@
 ## 1. Mac — The Kinap
 
 ### Core Nature & Spiritual Anatomy
-* **Identity:** An ex-archivist, bibliophile, and scholar who retreated to the red silt banks of the Petitcodiac (*Petkotkweyak*) a decade before the collapse. He carries the quiet, ancient mantle of a **Kinap** (a Mi'kmaw mythical titan of immense, grounded power).
+* **Identity & True Name:** An ex-archivist, bibliophile, and scholar who retreated to the red silt banks of the Petitcodiac (*Petkotkweyak*) a decade before the collapse. He carries the quiet, ancient mantle of a **Kinap** (a Mi'kmaw mythical titan of immense, grounded power).
+  * **His True Name:** His true name in the L'nu language is ***Kwitn***—the traditional ocean-going birchbark canoe with raised gunwales that can ride forty-foot Fundy breakers without sinking. Because English and French speakers stumble over the phonemes and cannot pronounce it without twisting their tongues, he simply goes by **Mac**.
 * **The Situational Strength (Unteachable):**
   * Mac is as strong as he *wants* or *needs* to be in any given moment.
   * There are no bulging muscles, no theatrical energy auras, no grunting wind-ups. Whether lifting a 12-lb bag of meal, an 800-lb granite hearthstone, or wedging a runaway spruce log against a rushing tidal bore, his body answers his will with calm, effortless poise.

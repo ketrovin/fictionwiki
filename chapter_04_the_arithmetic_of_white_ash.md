@@ -74,13 +74,29 @@ The taste made her eyes sting with sudden, involuntary tears. It was rich, savor
 
 She ate three spoonfuls in rapid succession, her hands trembling slightly, before pausing to look up at him.
 
-"You said your name was Mac," she said, wiping her lower lip with the back of her thumb. "Just Mac? Or is that short for something fancy?"
+"You said your name was Mac," she said, wiping her lower lip with the back of her thumb. "Just Mac? Or is that short for something?"
 
-"Just Mac," he replied, leaning his large forearms against his knees with a quiet smile. "One syllable. Economical, functional, and reduces vocal expenditure by forty percent. Leaves more breath for sawing wood and drinking tea. The late William of Ockham would applaud the lexical parsimony."
+Mac paused, looking down at his large, scarred hands with a quiet, thoughtful smile.
 
-Maya gave a dry, approving nod, a faint smirk touching the corner of her mouth.
+"In the old tongue—the L'nu language of my people—my name is *Kwitn*," he said, the word rolling from his throat with that soft, guttural, rhythmic cadence of the Maritimes that carried the sound of a birch paddle cutting through cold salt water.
 
-"Good," she said bluntly. "I hate fancy names. You look like a Mac. You chop trees, bend iron with your fingers, and throw two-hundred-pound raiders into culvert pipes. Mac fits."
+Maya’s lips twitched as she tried to shape the sound. "K... Kw-wheet'n? K-witten? Kwuh-t'n?"
+
+Her tongue stumbled over the initial consonant cluster, her brow furrowing in acute linguistic frustration.
+
+"My tongue just tried to tie itself into a clove hitch," she groaned, shaking her head. "It sounds like someone clearing their throat while swallowing a syllable. I'm going to break a tooth trying to pronounce that with an Acadian accent."
+
+"Most people do," Mac smiled gently. "The English and the French have spent four hundred years flattening indigenous phonemes into vowels they can digest with white bread. It means the ocean canoe. The traditional birch-bark vessel with the raised, flared gunwales that can ride forty-foot Fundy breakers without taking water."
+
+Maya looked at his broad shoulders, at the calm, unsinkable depth in his blue eyes, and nodded slowly.
+
+"A canoe that doesn't sink. Yeah. That fits you," she admitted. "But my mouth is strictly Acadian French and bad road slang. Can I just call you Mac?"
+
+"Mac works fine," he chuckled softly. "One syllable. Economical, functional, and reduces vocal expenditure by forty percent. Leaves more breath for sawing wood and drinking tea. The late William of Ockham would applaud the lexical parsimony."
+
+Maya gave a dry, approving smirk.
+
+"Good. Mac it is. You chop trees, bend iron with your fingers, and throw two-hundred-pound raiders into culvert pipes. Mac fits."
 
 Maya paused with her spoon halfway to the bowl, giving him a sharp, sideways glance.
 
