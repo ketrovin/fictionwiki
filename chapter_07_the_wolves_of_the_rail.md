@@ -663,7 +663,7 @@ The machines were dead. The steel was broken. And the power of the road was dust
 
 Ten minutes later, the clearing had been cleared of weapons, fuel, and iron.
 
-The young, wiry raider was bound securely to the heavy oak workbench inside the maintenance shed, his hands tied behind his back with his own nylon zip-ties, his face cleaned of blood, weeping quietly in the gloom.
+The young, wiry raider was bound securely to the heavy oak workbench inside the maintenance shed, his hands tied behind his back with his own nylon zip-ties, his face still streaked with blood from Scar's claw marks, weeping quietly in the gloom.
 
 "You'll be out in twenty-four hours when the wood dries and the zip-ties stretch," Mac told the boy through the doorway, his tone stern but devoid of cruelty. "There is water in the barrel by the door. If you have any sense left in that young skull of yours, when you get loose, you will walk south toward the fishing coves of Cape Enrage and learn how to pull a cod-line like an honest man. If you ever show your face on this railway corridor again, Nipn will not wait for my command."
 
@@ -671,7 +671,7 @@ The boy nodded frantically, his eyes wide with terrified gratitude. "I swear... 
 
 Mac shut the heavy timber door, dropping the exterior iron bar into place.
 
-Out on the railway ballast, the stocky man who had choked Maya was slowly regaining consciousness, groaning and retching in the weeds, his shattered wrist bound tightly in a clean strip of canvas Maya had provided from her medical kit.
+Out on the railway ballast, the stocky man who had choked Maya was slowly regaining consciousness, groaning and retching in the weeds, his pulverized wrist dangling limp and swollen like a dead root against his ribs, curled in the dirt, receiving not a single drop of water, not a shred of cloth, and zero pity from the woman he had tried to strangle.
 
 And kneeling in the sharp granite stones between the twin steel rails was Cody.
 
@@ -727,7 +727,7 @@ Cody blinked through his tears. "What?"
 
 "M-man... it’s forty miles of shale and briars back to Sussex..." Cody sobbed, his voice cracking with pure despair. "My feet will be shredded to the bone! The black flies will eat me alive!"
 
-"Then you had better walk fast," Mac replied coldly. "A man who hunts women across the mud does not deserve leather between his skin and the earth. You will walk every single mile back to Vance on your bare, bleeding feet. Every time a sharp stone cuts your heel, every time a briar tears your calf, you will remember that you are alive only because the woman you tried to violate showed you mercy."
+"Then you had better walk fast," Mac replied coldly. "A man who hunts women across the mud does not deserve leather between his skin and the earth. You will walk every single mile back to Vance on your bare, bleeding feet. Every time a sharp stone cuts your heel, every time a briar tears your calf, you will remember that you are alive only because I need a two-legged dog to carry my warning back to your master."
 
 Cody looked at Maya.
 
