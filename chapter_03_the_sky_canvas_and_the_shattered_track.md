@@ -42,7 +42,7 @@ He brought the volume back to the table, turning the crisp, rag-paper pages unti
 
 Outside, seventy thousand tons of cold salt water tore past the headland in the pitch blackness, reshaping the red sandbars of the Petkotkweyak with every roaring surge.
 
-Inside, the tea remained hot, the stone stayed warm, and Malcolm MacCallum turned another page of human history in the quiet dark.
+Inside, the tea remained hot, the stone stayed warm, and Mac turned another page of human history in the quiet dark.
 
 ---
 
@@ -233,7 +233,7 @@ Suspended sixty feet below the envelope, dangling on twelve braided steel aircra
 
 To an ordinary man, retrieving that balloon would have required a crane, a bucket truck, or a suicidal climb up eighty feet of rusted, gale-weakened structural steel.
 
-Malcolm MacCallum did not need a crane.
+Mac did not need a crane.
 
 He walked to the base of the steel transmission tower. He inspected the four massive corner legs, anchored into concrete footings that had settled two inches into the marsh peat over forty years.
 
@@ -424,7 +424,7 @@ Her breath hitched in her chest—a sharp, ragged gasp of sheer disbelief.
 
 "A wolf..." she whispered, her eyes wide, dark brown pupils dilated with shock and septic fever. "Oh God... you've got dogs... you're hunting me with dogs..."
 
-"He's not a dog, miss," Mac said softly, his voice dropping into that rhythmic, comforting Maritime cadence that felt like a warm wool blanket laid over cold shoulders. "His name is Nipn. Mi'kmaw for Summer. And I am not hunting you. I am Malcolm MacCallum. This ridge belongs to my house, and there are no raiders behind me."
+"He's not a dog, miss," Mac said softly, his voice dropping into that rhythmic, comforting Maritime cadence that felt like a warm wool blanket laid over cold shoulders. "His name is Nipn. Mi'kmaw for Summer. And I am not hunting you. I am Mac. This ridge belongs to my house, and there are no raiders behind me."
 
 She shook her head violently, sending wet, matted strands of thick dark hair whipping across her face.
 
@@ -466,7 +466,7 @@ She pitched forward, her forehead dropping toward the cold, stagnant peat water.
 
 She did not hit the mud.
 
-Before gravity could finish its pull, Malcolm MacCallum was there.
+Before gravity could finish its pull, Mac was there.
 
 His broad hands—warm as freshly baked hearth bread, gentle as a mother’s touch—caught her beneath the armpits, arresting her fall six inches above the water.
 
@@ -482,7 +482,7 @@ She looked up at the broad, weathered face looking down at her: the gray-streake
 
 "Who... who are you?" she breathed, her voice barely a whisper against the wind.
 
-"Malcolm," he said softly. "Just an old archivist who tends a lighthouse. And your war is over for today."
+"Mac," he said softly. "Just an old archivist who tends a lighthouse. And your war is over for today."
 
 Her eyes rolled back under dark lashes. Her body went completely limp in his arms, the last reserve of her ferocious adrenaline finally surrendering to the overwhelming, deep black tide of exhaustion.
 
@@ -568,7 +568,7 @@ What happened next was not a duel. It was a physics lesson delivered with catast
 
 The rifleman began to squeeze the trigger.
 
-Before the firing pin could fall, Malcolm MacCallum moved.
+Before the firing pin could fall, Mac moved.
 
 With Maya held completely motionless in the iron cradle of his left arm, Mac covered fifteen feet of gravel ballast in a fraction of a second—a blur of mass and velocity that violated every human expectation of momentum. His boots didn't scatter a single stone.
 
@@ -656,7 +656,7 @@ He looked down at the weeping, broken man.
 
 Cole looked up at him, tears mixing with the ditch mud on his bruised face. "What... what the hell are you? You're not human... you're a demon..."
 
-"No," Mac replied, his voice a low, resonant rumble that seemed to vibrate through the earth. "I am Malcolm MacCallum. An archivist. And this valley belongs to the living."
+"No," Mac replied, his voice a low, resonant rumble that seemed to vibrate through the earth. "I am Mac. An archivist. And this valley belongs to the living."
 
 Mac looked down at Cole’s fallen nine-millimeter pistol lying in the gravel. He stepped on the weapon with the heel of his heavy double-soled work boot.
 
@@ -714,7 +714,7 @@ Mac eased the brake lever back, bringing the cart to a smooth halt on the gypsum
 
 He lifted Maya from the nylon bed, cradling her against his chest, while Nipn leaped down to retrieve her ash spear from the deck.
 
-The climb up the bluff path was steep, but Malcolm MacCallum ascended the sandstone shelves without a single pause for breath. His boots found the solid stone; his center of mass remained perfectly vertical; his breathing stayed unhurried and deep.
+The climb up the bluff path was steep, but Mac ascended the sandstone shelves without a single pause for breath. His boots found the solid stone; his center of mass remained perfectly vertical; his breathing stayed unhurried and deep.
 
 At the brow of the hill, he slipped two fingers through the secret knothole in the tamarack gate, lifted the hornbeam rocker latch, and stepped into the homestead courtyard.
 
@@ -838,7 +838,7 @@ He paused at an entry:
 
 Mac smiled into the dark, resting his hand on the quiet page.
 
-For ten years, Malcolm MacCallum had lived here in solitary, monastic peace—a Kinap with his books, his tools, and his wild companions.
+For ten years, Mac had lived here in solitary, monastic peace—a Kinap with his books, his tools, and his wild companions.
 
 He took a sip of hot mint tea and turned another page.
 

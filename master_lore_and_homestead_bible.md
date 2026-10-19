@@ -2,7 +2,7 @@
 
 ---
 
-## 1. Malcolm "Mac" MacCallum — The Kinap
+## 1. Mac — The Kinap
 
 ### Core Nature & Spiritual Anatomy
 * **Identity:** An ex-archivist, bibliophile, and scholar who retreated to the red silt banks of the Petitcodiac (*Petkotkweyak*) a decade before the collapse. He carries the quiet, ancient mantle of a **Kinap** (a Mi'kmaw mythical titan of immense, grounded power).

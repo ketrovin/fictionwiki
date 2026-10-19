@@ -4,7 +4,7 @@
 
 The rain that moved in off the Bay of Fundy on the second morning was not a storm. It was a heavy, slow-falling coastal drizzle—what the old Acadians called *la brume*—a damp gray veil that clung to the needle-tips of the red spruces and turned the red clay roads into slick chocolate grease.
 
-Malcolm MacCallum stood at the western corner of the living palisade, watching the mist drift through the dense hawthorn lattice.
+Mac stood at the western corner of the living palisade, watching the mist drift through the dense hawthorn lattice.
 
 Beside him, Nipn’s silver coat was studded with thousands of microscopic water droplets that caught the pale morning light like powdered glass. The wolf’s nose was elevated three inches above horizontal, sampling the moist laminar airflow that drained down from the high spruce ridge.
 
@@ -177,7 +177,7 @@ Leaf spring steel was the crown jewel of post-collapse blacksmithing. It contain
 
 Mac laid the leaf spring across the cold horn of the anvil.
 
-Now, with his Kinap nature, Malcolm MacCallum could have simply grabbed the ends of that two-inch-wide, half-inch-thick bar of hardened spring steel and snapped it in two with his bare hands like a dry soda cracker. He could have bent it into a pretzel with his thumbs.
+Now, with his Kinap nature, Mac could have simply grabbed the ends of that two-inch-wide, half-inch-thick bar of hardened spring steel and snapped it in two with his bare hands like a dry soda cracker. He could have bent it into a pretzel with his thumbs.
 
 He did neither.
 
@@ -349,7 +349,7 @@ He paused, resting his palm against the warm, polished pine upright of the shelf
 
 People down in the valley—if they ever discovered this tower—might assume he was a scavenger who had raided abandoned university buildings and municipal libraries in the frantic weeks after the power grid collapsed. They would be entirely wrong.
 
-Malcolm MacCallum had been collecting these books for forty years, long before the first transformer blew, long before the supply chains fractured, and long before the world forgot how to live without a lithium battery.
+Mac had been collecting these books for forty years, long before the first transformer blew, long before the supply chains fractured, and long before the world forgot how to live without a lithium battery.
 
 Throughout his entire adult career as an archivist and paleographer in Halifax, Edinburgh, and Montreal, while his academic colleagues were busy discarding physical paper to celebrate the dawn of the digitized "paperless office," Mac had used his modest salary to rescue what the modern world called obsolete. He had haunted estate sales in old Nova Scotia sea-captain mansions, bid on forgotten probate lots in Boston, climbed into the damp attics of rural New Brunswick parish churches, and salvaged crates of 17th-century folios from institutional basements where administrators were dumping leather-bound history into recycling bins to make room for server racks.
 
@@ -379,7 +379,7 @@ From the bottom of the tower, Nipn’s mental voice floated upward, heavy with s
 
 "Coming, Sir Wolf," Mac laughed softly, blowing out the whale-oil lamp.
 
-In the dark of the spiral tower, guided only by the memory of seventy-four stone steps and the familiar scent of old paper and pine, Malcolm MacCallum walked down to his hearth.
+In the dark of the spiral tower, guided only by the memory of seventy-four stone steps and the familiar scent of old paper and pine, Mac walked down to his hearth.
 
 
 ---
@@ -712,4 +712,4 @@ In the cabin below, the root cellar was sealed in white lime, the pantry was ric
 
 Mac laid a heavy, affectionate hand on the wolf’s shoulder.
 
-"Come along, Sir Wolf," Malcolm MacCallum said, turning toward the spiral stairs. "Let's go down to the keeper's apartment, light the Monarch stove, and see what Mr. Samuel Johnson has to say about the etymology of fortitude."
+"Come along, Sir Wolf," Mac said, turning toward the spiral stairs. "Let's go down to the keeper's apartment, light the Monarch stove, and see what Mr. Samuel Johnson has to say about the etymology of fortitude."

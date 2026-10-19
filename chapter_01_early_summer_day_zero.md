@@ -4,7 +4,7 @@
 
 The Petitcodiac did not ask for permission to turn inside out. Twice every twenty-four hours, the Bay of Fundy shoved one hundred and sixty billion tons of cold Atlantic salt water up the funnel of Chignecto, forcing the red river to swallow its own tongue. When the water went back out, it did not leave gently; it tore itself away like a bad tenant stripping the copper pipes, exposing thirty square miles of glistening, blood-brown mud that could swallow a draft horse to the shoulders and hold it there until the next wall of brine returned to finish the discussion.
 
-Malcolm MacCallum stood on the high sandstone bluff above Belliveau Village, watching the dawn turn the chocolate-colored flats into a vast sheet of hammered copper.
+Mac stood on the high sandstone bluff above Belliveau Village, watching the dawn turn the chocolate-colored flats into a vast sheet of hammered copper.
 
 He wore gray wool socks inside double-soled leather work boots greased with mutton tallow and pine tar, faded canvas trousers patched at both knees with heavy sailcloth, and a coarse homespun work shirt the color of dried oatmeal. Across his broad shoulders sat the quiet, easy slump of a man who had spent forty years reading books in quiet university archives and the last ten years hauling fieldstone with his bare hands. He did not look like a warrior. He did not look like a hermit. He looked like an overgrown country schoolmaster who had wandered into the woods with a pocketknife and simply decided to stay until he finished thinking.
 
@@ -24,7 +24,7 @@ Nipn made a tiny, wet huff through his black nostrils. *Humans make promises to 
 
 "That's because the mud is honest, Nipn. Cold, indifferent, and completely devoid of rhetorical embellishment. The Romans called it *limus*. Closely related to *limen*, a threshold. You step across it, and you either reach the other bank or you become an interesting geological stratum for the next epoch."
 
-Mac shifted his weight, testing the morning wind. It blew out of the southwest, damp with the smell of wet kelp and spruce resin. No smoke. No diesel fumes. No hum of sixty-cycle alternating current vibrating through the soles of his boots from distant transmission towers. The world had gone quiet four months ago, dying not with a theatrical nuclear bang, but with the dry, pathetic rattle of empty fuel tanks, fractured distribution grids, and supply chains that had snapped like dry spaghetti. For Malcolm MacCallum, the end of civilization had been less of a catastrophe and more of an administrative redundancy. He had already spent a decade building his house.
+Mac shifted his weight, testing the morning wind. It blew out of the southwest, damp with the smell of wet kelp and spruce resin. No smoke. No diesel fumes. No hum of sixty-cycle alternating current vibrating through the soles of his boots from distant transmission towers. The world had gone quiet four months ago, dying not with a theatrical nuclear bang, but with the dry, pathetic rattle of empty fuel tanks, fractured distribution grids, and supply chains that had snapped like dry spaghetti. For Mac, the end of civilization had been less of a catastrophe and more of an administrative redundancy. He had already spent a decade building his house.
 
 He started down the bluff path.
 
@@ -74,7 +74,7 @@ He did not pray. He did not tighten a weightlifter's belt. He did not breathe th
 
 He merely looked at the hemlock root, decided that it was in his way, and reached down into the red water.
 
-His broad hands closed around two gnarled root knobs. His boots settled an inch deeper into the gravel seam beneath the mud, establishing an immovable foundation against the earth. And then, with the casual, measured rhythm of a man picking up an empty watering can to move it off the porch steps, Malcolm MacCallum straightened his spine.
+His broad hands closed around two gnarled root knobs. His boots settled an inch deeper into the gravel seam beneath the mud, establishing an immovable foundation against the earth. And then, with the casual, measured rhythm of a man picking up an empty watering can to move it off the porch steps, Mac straightened his spine.
 
 The sucking sound of the mud was a loud, wet *SCHWOCK*.
 
@@ -138,7 +138,7 @@ Or rather, to an untrained eye, they seemed to thicken into an impenetrable, tan
 
 It was a living palisade.
 
-Ten years ago, when Malcolm MacCallum bought this hundred-acre parcel of rocky coastal scrub with the modest pension from his years in the university archives, he had not bought barbed wire or pressure-treated four-by-four posts from the lumber yard. Modern fence posts rotted in Maritime soil within seven years, eaten by the perpetual acid moisture of the spruce duff and the salt spray drifting off Shepody Bay. Steel wire rusted into orange dust.
+Ten years ago, when Mac bought this hundred-acre parcel of rocky coastal scrub with the modest pension from his years in the university archives, he had not bought barbed wire or pressure-treated four-by-four posts from the lumber yard. Modern fence posts rotted in Maritime soil within seven years, eaten by the perpetual acid moisture of the spruce duff and the salt spray drifting off Shepody Bay. Steel wire rusted into orange dust.
 
 Instead, Mac had planted living saplings.
 
@@ -255,7 +255,7 @@ Behind the cabin, where the ground dipped into a natural limestone depression be
 
 To a casual hiker, the bog looked like a treacherous, drowned wasteland: hundreds of acres of quaking peat, dark tea-colored pools of acidic water, stunted black spruce draped in pale gray Usnea beard lichen, and floating mats of sphagnum moss that could swallow a grown man to his armpits in cold, anaerobic muck. In the old days, city people drove around it on asphalt highways, calling it useless muskeg.
 
-To Malcolm MacCallum, it was an inexhaustible, open-air grocery store, pharmacy, and fortress moat.
+To Mac, it was an inexhaustible, open-air grocery store, pharmacy, and fortress moat.
 
 Starting from the dry cedar edge, an elevated wooden boardwalk stretched out across the quaking moss like a pale gray spine.
 
@@ -331,7 +331,7 @@ He laid a heavy, reassuring hand on Nipn’s head, scratching the wolf behind th
 
 Mac picked up his loaded basket. 
 
-With the wolf at his heel and the fox trailing like an orange shadow behind them, Malcolm MacCallum walked back along the cedar boardwalk, leaving the quiet wilderness of the Great Bog behind.
+With the wolf at his heel and the fox trailing like an orange shadow behind them, Mac walked back along the cedar boardwalk, leaving the quiet wilderness of the Great Bog behind.
 
 ---
 
@@ -464,7 +464,7 @@ And then, rising abruptly against the turquoise sky of Shepody Bay, stood the li
 
 It was named the Belliveau Head Light, though the Canadian Coast Guard had decommissioned it twelve years before the collapse when satellite GPS rendered coastal navigation towers commercially obsolete. The government had put the decommissioned station up for public tender: a half-acre of windswept granite ledge, an automated solar buoy beacon that had replaced the lens, and an octagon tower of hand-dressed gray Fundy granite blocks built in 1884.
 
-Malcolm MacCallum had bought it with the remainder of his university severance package. He owned it outright—the granite, the iron, the deeds, and the sky above it.
+Mac had bought it with the remainder of his university severance package. He owned it outright—the granite, the iron, the deeds, and the sky above it.
 
 The tower stood sixty feet tall, tapering gracefully from a twenty-four-foot octagonal base to an enclosed iron lantern gallery at the summit. The granite blocks were four feet thick at the foundation, pinned together with wrought-iron cramps and bedded in hydraulic lime mortar that had calcified over a century of salt spray until it was harder than the stone itself.
 
@@ -672,7 +672,7 @@ The charge of heavy lead birdshot detonated inside the barrel, slamming forward 
 
 To an ordinary human being, a twelve-gauge muzzle blast at contact distance would have shredded flesh, shattered metacarpal bones, and blown the hand into red mist.
 
-Against Malcolm MacCallum’s palm, the blast produced a dull, muffled *THWUMP*.
+Against Mac’s palm, the blast produced a dull, muffled *THWUMP*.
 
 The expanding gases and four hundred lead pellets hit his skin like a handful of dry peas tossed against an iron safe. His palm did not tear. His skin did not blister. The skin of a *Kinap* was not armor plate; it was simply an absolute, metaphysical boundary that refused to yield to mechanical violence.
 
@@ -818,7 +818,7 @@ Outside, the living fence of braided willow and hawthorn flexed gently in the ni
 
 He was a Kinap. He was as strong as the continental shield beneath his feet. He could bend iron with his fingers and hear the thoughts of wolves and bears.
 
-Yet as he took a sip of hot mint tea and turned another page of his book, Malcolm MacCallum felt no desire for crowns, kingdoms, or conquests.
+Yet as he took a sip of hot mint tea and turned another page of his book, Mac felt no desire for crowns, kingdoms, or conquests.
 
 The world had fallen. The cities had gone dark. The engines of modern vanity had ground to a halt in their own rust.
 

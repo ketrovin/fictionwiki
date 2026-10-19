@@ -46,7 +46,7 @@ Footsteps approached.
 
 They were not the frantic, heavy stomps of scavengers. They were the slow, measured, acoustic thuds of heavy double-soled leather boots moving with absolute, balanced deliberation across two-inch hemlock planks.
 
-Malcolm MacCallum stepped into the doorway.
+Mac stepped into the doorway.
 
 He carried a wide oval wooden tray carved from yellow birch. On the tray sat a steaming earthenware bowl of dark, golden broth glistening with droplets of rendered venison fat, a clean pewter spoon, a small wooden plate holding two toasted oat-cakes smeared with amber cloudberry honey, and a steaming mug of mint-and-willow tea.
 
@@ -74,17 +74,13 @@ The taste made her eyes sting with sudden, involuntary tears. It was rich, savor
 
 She ate three spoonfuls in rapid succession, her hands trembling slightly, before pausing to look up at him.
 
-"You told me your name was Malcolm," she said, wiping her lower lip with the back of her thumb. "Malcolm MacCallum."
+"You said your name was Mac," she said, wiping her lower lip with the back of her thumb. "Just Mac? Or is that short for something fancy?"
 
-"I did," Mac replied, leaning his large forearms against his knees. "My grandfather was from the Isle of Skye. The Scots are notoriously conservative with Christian names; there were four Malcolms in my father's fishing crew alone."
+"Just Mac," he replied, leaning his large forearms against his knees with a quiet smile. "One syllable. Economical, functional, and reduces vocal expenditure by forty percent. Leaves more breath for sawing wood and drinking tea. The late William of Ockham would applaud the lexical parsimony."
 
-Maya shook her head, a faint, wry smile touching the corner of her lips.
+Maya gave a dry, approving nod, a faint smirk touching the corner of her mouth.
 
-"Malcolm is too long," she said bluntly. "It sounds like an 18th-century tax collector or a guy who writes angry letters to the editor. You chop trees, bend iron with your fingers, and throw two-hundred-pound raiders into culvert pipes. You're Mac. It's one syllable, it saves breath, and it fits."
-
-Mac let out a low, rumbling chuckle that vibrated through the floorboards.
-
-"Mac it is, then," he agreed. "Gaelic for 'son of.' Economical, functional, and reduces vocal expenditure by forty percent. The late William of Ockham would applaud the lexical parsimony."
+"Good," she said bluntly. "I hate fancy names. You look like a Mac. You chop trees, bend iron with your fingers, and throw two-hundred-pound raiders into culvert pipes. Mac fits."
 
 Maya paused with her spoon halfway to the bowl, giving him a sharp, sideways glance.
 
