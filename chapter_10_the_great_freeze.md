@@ -513,6 +513,3 @@ In her lap, the red squirrel gave a tiny, contented squeak, shifting his positio
 Outside, sixty feet below the warm granite walls of the Old Stone Light, the Petkotkweyak raged against the night. The red ice cracked and boomed as the forty-foot tide surged through the subterranean channels, grinding the floes into red sand, sweeping the bones of the old world out into the deep, salt waters of the Atlantic.
 
 The wind howled across the frozen barrens of the Tantramar, screaming against the dressed stone quoins of the tower, but inside the snug, not a candle flickered. The fire burned steady, the iron was sharp, the seed was dry, and the commonwealth of the red river was unbroken.
-
----
-# The End of Book One
