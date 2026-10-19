@@ -1,654 +1,518 @@
-# Chapter 10: The Great Freeze
+# Chapter 10: The Great Freeze and the Sovereign Shore
 
-### I. The Thermal Snug
+### I. The Red Ice and the Granite Keep
 
-The frost did not merely settle upon the Petkotkweyak valley that November; it struck like an iron wedge driven into green timber.
+The frost did not steal into the Petkotkweyak valley on polite cat’s feet; it descended like a falling portcullis of blue-gray iron.
 
-By the second week after the first gale, the temperature had tumbled past the forgiving damp of coastal autumn and plunged straight down through zero, down through minus ten, until the spirit bulb in the brass Taylor thermometer mounted outside the lighthouse galley window shrank to a tight, dark red bead at minus twenty-six Celsius. When the wind tore out of the north-northwest, howling down across the frozen flats of the Tantramar and barreling up the river slot from Shepody Bay, the effective chill bit at thirty-eight below. It was a cold that had weight. It had teeth. It searched out every microscopic hairline fracture in mortar, every seam in timber, every uninsulated sliver of glass, turning moisture into feathered white dagger-points of rime that sprouted like fungal colonies across the cold stone corners.
+By the third week of November, the lingering coastal dampness that had softened the salt marshes of Shepody Bay evaporated before a howling nor’easter that tore down straight from the Laurentian shield. The barometer in the brass gimbaled case beside the lighthouse watchroom desk plunged two full inches in fourteen hours, its aneroid diaphragm groaning against the sudden vacuum. Outside, the world turned brittle. The spirit bulb in the Taylor industrial thermometer mounted to the northern granite quoin shrank down through zero, down through minus ten, minus twenty, until by mid-December the dark red column stabilized at a numb, unforgiving thirty-two degrees below zero. With the northwest gale scouring the headland at forty-five knots, the windchill pushed the effective cold past fifty below. It was a temperature that stripped the moisture from a man’s throat in a single breath, that turned spruce sap into explosive glass, that made the four-foot-thick drystone walls of the Old Stone Light creak and pop like the hull of a ship trapped in polar pack.
 
-Inside the Old Stone Light, however, the world was dry, golden, and smelling of cedar wood, steeped labrador tea, and hardwood smoke.
+Yet on the red river below, the cold performed a stranger, more terrifying alchemy.
 
-Kwitn stood in his woolen socks on the thick braided rag rug, a seasoned stick of split sugar maple resting balanced in his left hand. He pulled open the cast-iron door of the heavy Jotul No. 4 box stove with a gloved right hand. The draft roared instantly—a deep, resonant *thrummm* that vibrated through the welded iron firebox as the column of hot, buoyant gases inside the six-inch stainless chimney drew fresh, oxygen-rich air through the secondary combustion tubes. A bed of orange-white coals, four inches deep and incandescent as smelting slag, breathed in the rush of air. Kwitn slid the split maple log into the glowing belly of the stove, followed by two thick billets of white birch with the papery, oils-rich bark still clinging tight to their backs, then eased the door shut until the iron latch clicked into its home notch.
+The Petkotkweyak did not freeze into a placid sheet of skating ice. The tides of Fundy were forty vertical feet of brutal hydraulic momentum, and they refused to die quietly beneath a skin of frost. Twice every twenty-four hours, two billion tons of saltwater roared up the funnel from the bay, colliding with the subterranean zero of the river channel. The brown-red silt water, thick with suspended shale and hematite clay, turned first into a viscous, churning slush known along the coast as frazil. As the mercury plummeted, this slush was ground against the mudbanks by the force of the tidal bore, crushed, rolled, and rafted into millions of circular, upturned pans of red ice.
 
-He backed the primary air damper down to a quarter turn. Within ninety seconds, the bright orange flames calmed, rolling into the lazy, blue-tipped secondary burn across the upper refractory baffle. The cast-iron plates began their steady, relentless ticking as heat soaked outward into the room.
+Within a week, the pans collided, buckled, and cemented together under their own crushing weight. When the spring tides surged beneath the frozen crust, the river channel erupted. Blocks of red ice the size of railway boxcars were hoisted six fathoms into the air, thrown against each other with detonations like heavy artillery, and frozen in place as the water receded. By solstice, the Petkotkweyak had transformed into a jagged, impassable wasteland of bloody-red pressure ridges, tilted bergs, and salt-crusted crevasses—a frozen Martian canyon five miles wide, groaning and booming in the night as the hidden waters shifted below.
 
-"Internal galley temp," Maya’s voice drifted down from the low loft bench behind the woodbox. She was leaning against the sanded cedar railing, a thick gray wool blanket draped over her shoulders like a shepherd’s cloak, a tin mug cupped between her palms. "Galley floor is eighteen. Loft midpoint is twenty-one. Deckle drying rack near the flue is twenty-four. We have achieved what the heating and cooling trade technically refers to as 'not dying like idiots.'"
+Sixty feet above that frozen maelstrom, inside the living snug of the Old Stone Light, the world was gold, fragrant, and profoundly warm.
 
-Kwitn gave a dry, quiet snort, replacing the stove poker in its wrought-iron stand. "The Montgolfier damper is doing seventy percent of the work. If we hadn’t sealed off the lantern room crown with that counterweighted wool trap, this whole tower would be sucking thirty cords of rock maple straight up into the stratosphere like a seventy-foot blowtorch."
+Mac stood barefoot on the double-woven rag rugs of the lighthouse keeper’s quarters, his thick hands resting on the handles of a cedar shovel as he banked the ash in the base of the massive cylinder stove. The stove was an engineering triumph of his fourth winter: welded from a pair of heavy four-foot-diameter industrial steam headers salvaged from the old paper mill down in Albert Mines, lined with two hundred pounds of firebrick, and ducted into an internal masonry heat exchanger that ran thirty feet up the granite core before exiting the copper cowl. The firebox roared with a low, vibrating hum that set the floorboards singing against the soles of his feet.
 
-"I know," Maya said, her dark eyes glinting with amusement over the rim of her mug. "You explained the chimney effect to me while hanging by your knees from a safety harness in October. Twice. The second time was because I made the tactical mistake of asking whether stone breathes."
+Inside its belly, two split billets of seasoned rock maple and a chunk of swamp birch were burning down to incandescent orange slag. The external temperature of the iron header read two hundred and forty degrees Fahrenheit on the surface thermometer; the radiant heat pushed outward through the dry sheep’s wool batts and tongue-and-groove cedar planking that lined the inner curve of the tower wall, holding the circular room at a steady, bone-deep seventy-two degrees.
 
-"Granite doesn't breathe," Kwitn said evenly, picking up a clean rag to wipe soot dust from his thumbnail. "Granite sits there and steals your calories until you out-think it. That’s why we insulated the living snug with three inches of dry sheep’s wool and tongue-and-groove cedar planking. You heat the air inside the box, not the mountain outside."
+Along the curved copper drying rack mounted four feet from the flue pipe, a neat row of washed Acadian flax linen envelopes—the winged sanitary pads Maya had tailored during the Moon of the Red Leaf—hung alongside several dozen dried, golden bundles of *Sphagnum palustre* bog moss. The moss had been harvested from the high black spruce bog in October, pressed dry between split cedar laths, and bundled into sterile, four-ounce cores that held twenty-five times their dry weight in moisture. Suspended near the dry convective updraft, the linen was bleached white by the radiant heat, smelling faintly of wood-ash lye soap, sweetfern, and sun-cured grass.
 
-At the base of the woodbox, curled into an enormous, silver-gray circle of dense fur with his black muzzle tucked beneath the plumed brush of his tail, Nipn opened one bright, amber eye. The wolf didn't lift his head. He merely watched Kwitn's boots shift across the floor, gave a soft, shuddering sigh of pure, furnace-warmed contentment, and let the heavy eyelid sink shut again.
+"Internal galley temp," Maya’s voice drifted down from the library ladder that leaned against the curved bookshelves. She was perched on the fourth rung, her wool-socked feet resting easy, balanced with the casual grace of someone who had spent four months re-learning the exact center of gravity in her right ankle. Over her shoulders she wore a thick, undyed fisherman’s sweater knit from coarse Acadian fleece, the sleeves pushed up to her forearms. In her left hand she held a leather-bound folio—the 1726 edition of Newton’s *Opticks*—while her right hand traced the ink-drawn copperplates of prism refraction. "Galley floor is eighteen Celsius. Loft midpoint is twenty-one. Deckle drying rack near the flue is twenty-four. We have achieved what the heating and cooling trade technically refers to as 'not dying like idiots.'"
 
-Nipn had spent the first two years of his life in the remote crown timber lands north of the Miramichi before Kwitn brought him home as a scrawny, orphaned pup from an abandoned den. In the woods, a wolf survived forty below by digging into the snow pack beneath the drooping boughs of a deadfall balsam, curling his tail over his nose to create a micro-climate of recycled breath. Here, three feet from two hundred pounds of radiant Scandinavian cast iron, Nipn had decided that human technology, while aesthetically questionable and excessively noisy, possessed certain undeniable thermal merits.
+Mac gave a quiet, rumbling chuckle, sliding the stove’s secondary draft slide down to three-sixteenths of an inch with his bare thumb. "Granite doesn't care about thirty below, Maya. The men who laid these blocks in 1864 cut them from the red quarries at Mary’s Point. Dressed four sides true with iron chisels, bedded in hydraulic lime mixed with coarse salt sand. The whole tower weighs nine hundred tons. It would take a tidal wave twenty fathoms high to make this stone flinch."
 
-Maya came down the short ash ladder from the loft, her wool-socked feet making no sound on the wide spruce boards. She wore a pair of Kwitn’s heavy flannel work shirts over a thermal henley, the sleeves rolled twice at the wrists, and her hair was gathered back with a polished caribou-bone pin Chris had forged from an old antler find. 
+"And the draft trap?" she asked, glancing down at him with an eyebrow arched in mild challenge.
 
-Curled around the back of Kwitn’s neck, tucked snugly inside the thick collar of his unbuttoned Mackinaw jacket, was *Wojkw*. The little red fox poked its black-nosed, fiery-orange snout out from beneath Kwitn’s jaw, sniffed the warm cedar air, gave Maya a tiny, sleepy blink, and tucked its chin back over Kwitn’s collarbone with a long, vibrating *churr*.
+"The Montgolfier wool trap at the lantern ceiling is doing seventy percent of the work," Mac answered, wiping a speck of charcoal from his wrist with a clean rag. "If we hadn't sealed off the upper lantern room crown with that counterweighted wool damper in October, this entire shaft would be sucking thirty cords of rock maple straight up into the stratosphere like a seventy-foot blowtorch. Instead, the heat rises to the loft floor, hits the cedar baffle, and recirculates back down the spiral stairs. Fluid dynamics doesn't change just because the power grid died."
 
-"He’s not leaving that collar today," Maya smiled, reaching out to give the fox’s soft ear a gentle scratch.
+"I remember," Maya said, her dark eyes glinting with amusement over the top of the folio. "You explained the chimney effect to me while hanging by your knees from a safety harness in the middle of a gale. Twice. The second time was because I made the tactical mistake of asking whether dressed granite breathes."
 
-"Don't blame him," Kwitn said with a quiet grin, resting a thumb on the fox’s warm fur. "One hundred and two degrees of internal body heat. Best living scarf in the Maritimes. How's the tea?"
+"Granite doesn't breathe," Mac said evenly. "Granite sits there and steals your calories until you out-think it. That’s why we insulated the living snug with three inches of dry sheep’s wool and tongue-and-groove cedar planking. You heat the air inside the box, not the mountain outside."
 
-"Strong and hot," Maya said, setting her mug on the scrubbed pine worktable, alongside three heavy volumes from Kwitn’s shelf—*Guards! Guards!*, a 1974 edition of *The Merck Manual of Diagnosis and Therapy*, and a bound ledger of blank birchbark leaves.
+A tiny, furious chittering erupted from the front of Maya’s sweater.
 
-"The thermometer on the rail siding dropped two degrees since dawn," she noted, glancing toward the narrow, triple-glazed casement window. Outside, through the thick, wavy glass, the world was rendered in monochrome: a brutal, blinding expanse of white snow, gunmetal-gray ice ridges choking the river bends, and the dark, jagged wall of black spruce standing rigid against the steel sky. "The tidal mud is frozen four feet down. You can hear the shelf ice groaning when the ebb pulls out."
+From the deep, shadowed valley between her collarbones—tucked firmly into the warm, woolen cleft of her cleavage—a pointed, red-furred snout poked free into the open air. Scar’s black whiskered nose twitched violently, testing the temperature of the room. He blinked two bead-black eyes against the warm lamplight, let out a high-pitched, indignant trill at the sound of the wind rattling the heavy casement glass, and dug his needle-sharp claws into the thick knit of Maya’s sweater to hoist himself up two inches. He rested his front paws directly on the swell of her chest, cocked his tufted ears toward the book in her hand, and barked a sharp, territorial reprimand at the entire Atlantic seaboard.
 
-"It's the spring tide cycle," Kwitn said, pouring himself a measure of hot water over a pinch of dried sweet fern and wintergreen leaves. "Fundy water never stops moving, but when the surface slush freezes into pancakes, they raft up against the mudbanks on the turn. Pack ice three fathoms deep in the narrows. Nothing moves out there."
+"Easy, you little monster," Maya murmured, her lips curling into a grin. She closed the folio with a soft leather *thump* and reached up with one knuckle to stroke the red squirrel right between his ears. "The world is not ending. It’s just winter. You have fifty pounds of dried butternuts and yellow flint corn sitting five feet from your nose."
 
-"Except the wandering ones," Maya said softly, her tone shifting from playful domesticity to the cool, clinical precision of an ER triage nurse reviewing a chart.
+Scar leaned into her knuckle with a prolonged, purring vibration that rattled through his small ribcage, but he refused to leave his perch. To Scar, the universe possessed a very clear structural hierarchy: outside was the frozen abyss where red hawks and freezing winds sought his destruction; the lighthouse was a pleasant outer fortification; but the absolute center of warmth, security, and supreme luxury on planet Earth was the ninety-eight-point-six-degree pocket situated between Maya’s calcium cannons inside her wool sweater. It was lined with shredded linen fluff he had stolen from her sewing basket, insulated by three layers of virgin fleece, and smelled faintly of lavender soap, cedar smoke, and dried sweetgrass. Under the unwritten Acadian Boreal Statutes, this territory was sovereign, non-negotiable, and defended by lethal tooth-and-claw eviction.
 
-Kwitn nodded, sipping his tea. "Except them."
+Whenever Maya sat down to read or sew, Scar would emerge just far enough to survey the perimeter, seize whatever seed or nut was offered, drag it down into his woolen cave, and gnaw it with ferocious, muffled clicks while pressed against her sternum.
 
-"How many did Nipn scent on the west ridge at dusk?"
+"He thinks he runs the watch," Mac said, walking over to the heavy timber worktable in the center of the snug.
 
-"Two," Kwitn answered. "One came out of the old gravel pit cut above the culvert. The other was staggering down the Canadian National rail bed from the Salisbury direction. Neither of them had coats. Just shredded summer shirts."
+"He does run the watch," Maya countered, descending the ladder with slow, measured steps. Her right foot met each rung flat and deliberate. There was no trace of the ragged limp that had dragged through the salt mud in July; the bimalleolar fracture had knit cleanly beneath Mac’s splints and bone-setting, the callus smoothed by daily applications of comfrey tallow and hard physical work. When she reached the floor, she reached down instinctively to the table’s edge, picking up her hand-carved white ash staff with her right fingers, curling her grip around the polished grip. She didn't need it to cross the rag rug, but the timber was a part of her now—balanced to her height, notched with her mileage, and capped with a three-inch spike of forged railroad iron. "He’s been scolding the clouds since sunrise. When the storm dropped that white-out at noon, he wouldn't let me reach for my tea without barking like a guard dog."
 
-Maya looked toward the window, her brow furrowing slightly in thought. "They don't have metabolic thermogenesis. No shivering reflex. No vascular vasoconstriction. At minus twenty-six, how long before cellular vitrification occurs?"
+"He knows what starvation smells like," Mac said quietly. He set a wide earthenware bowl on the table between them. "Every creature in this valley that didn't fill its cellar by the Hunter’s Moon is either dead or hunting something that is."
 
-"About forty minutes if they're moving into the wind," Kwitn replied, stepping to the wall rack where his snowshoes hung alongside his short ash pole-axe and the leather-sheathed broad hatchet. "Their extremities freeze solid first. Fingers snap off like dry pine twigs if they hit a fence post. Then the quadriceps and hamstrings turn into frozen beef. They don't fall over because they die—they fall over because the knee joints lock into solid ice blocks and their tendons shear off the bone."
+In the bowl was their evening meal: golden hominy corn, boiled tender after forty-eight hours of wood-ash lye nixtamalization, tossed with flaked, salted gaspereau taken from the smokehouse racks, dried cranberry beans that had soaked overnight on the stove corner, and a generous ladle of rendered bear tallow that gleamed like melted amber over the starch. The aroma was rich, earthy, and dense with calories—the scent of an ancient boreal harvest that had transformed sun, soil, and red silt into unassailable human fuel.
 
-Maya picked up her heavy beaver-fur mitts from the drying rack above the stove. "Which means today is collection and clearance day."
+On the cedar floorboards beside the hearth, Nipn stirred.
 
-"Today," Kwitn agreed, taking down the broad hatchet and checking the razor-honed bevel of its high-carbon edge against the light, "is clearance day. Put on your double wool duffels. We'll check Bear's den on the way out, clear the rail cut, and check the ice-hole basket traps before the midday light fades."
+The massive silver-gray wolf stretched his front legs out until his claws clicked against the boards, arched his broad spine with a low, groaning yawn, and rose to his feet. He shook his winter coat—a dense, four-inch pelt of slate and silver that had doubled in thickness since October—and padded across the room without a sound. He stopped at the edge of the table, resting his broad, scarred jaw squarely on Mac’s left knee, his yellow eyes glowing with quiet, ancient intelligence.
+
+Mac reached down with his left hand, his calloused fingers burying deep into the thick ruff behind the wolf’s ears, scratching the heavy muscles of his neck with firm, rhythmic pressure. Nipn closed his eyes, leaning his full eighty pounds against Mac’s leg, letting out a breath that smelled of dried venison and cold air.
+
+"He checked the perimeter fence at dusk," Mac said, looking down at the beast. "Before the drift buried the bottom wire. The snow is banking against the spruce windbreak on the west terrace. Four feet deep and climbing. By tomorrow morning, the living hedge will be a solid wall of packed white rampart."
+
+"And the Sussex raiders?" Maya asked. Her voice lost its domestic warmth, dropping into the cold, calculated register of an engineer assessing load tolerances. She took a seat on the oak bench, resting her staff against the table leg, and scooped a spoonful of the hominy into her bowl. "Cody ran forty miles barefoot through the salt grass with his thumbs broken. Even if he made it back to their compound with that warning around his neck, they were starving in October. They had six rusted snowmobiles and less than three drums of stale ethanol. When the river froze solid, what did you expect them to do?"
+
+Mac didn't answer immediately. He ladled food into his own bowl, his pale blue eyes staring into the dark grain of the pine planks.
+
+"They won't stay in the ditch," he said finally. His voice was low, devoid of anger or bravado, carrying the flat certainty of an iron axle turning in grease. "A man who is starving does not think about the future, Maya. He thinks about the next twelve hours. Sussex is thirty miles up the rail line, surrounded by burned timber and looted gas stations. When the snow cuts off the back roads and the canned peaches run out, there are only two things left for them: eat their own dead, or follow the steel tracks down to the water."
+
+"And the river ice?"
+
+"They’ll think the Petkotkweyak is a road," Mac said. He took a bite of the hominy, chewing slowly. "Men from the towns never understand the bay. They look out at five miles of red ice and they think it’s a highway straight to our terraces. They don't know that the tide is twenty feet below that crust, sucking the mud out from the banks twice a day, leaving caverns fifty feet deep under the snow."
+
+"And if they bring snowshoes?"
+
+"Then they die faster," Mac said simply. "Because snowshoes won't save you when a ten-ton block of shale ice shears off on the ebb."
+
+Scar suddenly let out a shrill chatter from Maya’s neckline. He scrambled up onto her shoulder, turned around twice, and leaped across the eighteen-inch gap onto the table with a tiny, four-pawed landing. He scampered straight to Maya’s bowl, planted his front feet on the edge of the glazed earthenware, and seized a fat, boiled cranberry bean with his front paws. He sat back on his haunches, his bushy tail curled like an exclamation point over his spine, and began to nibble the bean with the mechanical speed of a high-speed sewing machine, his tiny dark eyes darting between Mac, Maya, and Nipn.
+
+Maya rolled her eyes, shaking her head. "You see? The Acadian Boreal Statutes in action. Zero rent, three meals a day, and an unearned share of the winter legumes."
+
+"He earned it," Mac murmured, a rare, soft smile touching the corners of his beard. "He kept your belly warm when the cramps hit in October. In this valley, heat is currency. The squirrel pays his way."
+
+Maya glanced down at her chest, then across the table at the giant woodsman sitting opposite her. The golden light of the kerosene lamp caught the silver streaks in his dark hair, the deep lines carved into his weathered brow by fifty winters of Fundy wind, and the quiet, immovable peace that surrounded him like an invisible wall of dressed granite. Four months ago, she had been a broken, bleeding refugee dragged out of a shattered railway culvert, clutching a stolen compass and waiting for her foot to turn gangrenous. Now, she was sixty feet up in a drystone fortress, eating the fat of the land, surrounded by three thousand books, a wolf, an insolent squirrel, and a man who could split a rock maple trunk with an iron wedge without breaking a sweat.
+
+"Tomorrow is the solstice," she said quietly.
+
+Mac nodded. "The shortest day. After that, the light begins to crawl back, second by second."
+
+"And the seed trays?"
+
+"In February," Mac replied. "Under the southern glass of the lantern room. We will sprout the flint corn, the yellow beans, and Auntie Elizabeth’s heirloom squash in shallow cedar flats. When the mud softens in May, we will have three thousand seedlings ready for the terraces."
+
+He looked toward the north window. Beyond the triple-pane glass, the blackness was absolute, save for the howling fury of the wind and the occasional, thunderous *CRACK* of the river ice shifting four miles away in the dark.
+
+"Eat your supper, Maya," he said softly. "The cold is long, but the stone is thick. We have everything we need."
 
 ---
 
-### II. The Statues of Glass
+### II. The Snowshoes and the White Silence
 
-Stepping through the outer airlock door of the Stone Light into the teeth of a Maritime winter gale was like being hit in the face with an iron shovel full of dry salt.
+At dawn, the wind died.
 
-The cold hit the mucous membranes of the nostrils instantly, flash-freezing the moisture into brittle needles that prickled with every inhalation. Kwitn pulled his wool-and-fleece neck gaiter up over the bridge of his nose, adjusting his fur-lined canvas trapper’s cap so that only a narrow slit of skin around his dark eyes was exposed to the biting air. Wojkw nestled deep inside the thick Mackinaw wool collar, completely shielded from the wind. Kwitn bent and strapped the raw-hide bindings of his traditional bear-paw snowshoes over his insulated moose-hide winter moccasins—thick, oil-tanned leather lined with two layers of hand-felted sheep’s wool duffels. 
+The silence that followed was not an absence of sound; it was a physical weight that settled over the headland like a blanket of lead. When Mac turned the heavy iron bolt on the lighthouse watchroom door and stepped out onto the iron gallery, the air felt as though it had been crystallized by an enormous electrostatic charge. The sky was an immaculate, pale dome of polished aquamarine, completely devoid of clouds. At seventy feet above the shoreline, the horizon stretched unbroken for thirty miles across the frozen reaches of Shepody Bay to the distant, white-capped ridges of Nova Scotia.
 
-Beside him, Maya stepped into her own matched pair of ash-framed shoes, tightening the lamp-wick hitches with quick, practiced pulls of her gloved fingers. She carried her five-foot ash walking staff in her left hand and a light, sharp-beveled carpentry hatchet tucked into the belt loop of her heavy canvas anorak.
+Below the tower, the landscape had been redrawn by the hand of an angry architect.
 
-Nipn exploded out of the snow drift beside the outer porch, his massive silver-gray body shaking a plume of dry powder from his thick winter coat. The wolf’s fur was nearly three inches deep, dense with an under-wool so thick that falling snow did not melt on his back. 
+The three-foot snowfall from the three-day blizzard had been scoured by the gale into sculpted, razor-edged sastrugi—drifts of snow so dense and wind-packed that they sounded like hollow oak boards beneath the tread of a boot. On the western terrace, where Mac had pruned the living willow-and-spruce hedge in July, the hedge had caught the drift with mechanical perfection. An immense rampart of white, fourteen feet high and sloping at a clean forty-degree angle, banked from the outer meadow straight up to the cedar rails of the enclosure, completely sealing the garden terraces, the root cellar door, and the lower cabin courtyard against the sub-zero blast.
 
-"First stop," Maya said, pointing her staff toward the south slope behind the root cellar. "Let's check on our tenant."
+Mac took a deep breath through his nose. The air burned his nostrils, but inside his lungs it was clean, sweet, and charged with the scent of frozen spruce needle and sea salt.
 
-They snowshoed across the yard to the snow-covered mound of the bear den. The timber bunker was completely buried under three feet of clean white drift-snow, looking like a natural, rounded hillock in the landscape. Only a small, four-inch chimney vent at the crest remained open to the sky, its rim coated in delicate, feathered hoarfrost from the warm, steady breathing within.
+Behind him, the heavy oak door creaked open.
 
-Maya knelt gently in the snow, brushing a thin crust of rime from the low inspection hole near the lintel. She peered inside.
+Maya stepped onto the gallery, wrapped from chin to ankle in heavy winter armor. Over her wool trousers she wore a pair of oiled moose-hide chaps Mac had traded from Noel at Fort Folly three years prior, lined with sheared sheepskin. Her torso was encased in a thick, hooded Mackinaw coat of dark green wool, belted tight at the waist with an oiled leather strap that carried her utility knife, a steel fire-striker, and a small leather pouch of dry spruce gum. On her hands were thick, double-knit Acadian mittens of dense wool, covered by outer shells of buckskin.
 
-There, curled into an enormous black sphere in the center of the deep cedar shavings and balsam boughs, was the four-hundred-and-fifty-pound Fundy bear. The heavy, double-layered patchwork quilt of red and gray wool Maya had stitched for him was pulled snugly all the way up over his massive shoulders, the canvas hem tucked neatly under his black chin.
+In her right hand, held firmly and deliberately at mid-thigh, was her white ash staff. She rested the iron-shod tip against the frozen zinc deck of the gallery, leaning slightly into its strength.
 
-His breath plumed in slow, rhythmic, ten-second intervals, a deep, rumbling subterranean snore vibrating softly against the frozen log frame.
+"The thermometer on the rail siding is reading minus thirty-four," she said, her breath pluming in a dense, white cloud that lingered in the crisp air before drifting slowly toward the bay. "The mercury is trying to crawl through the bottom of the glass."
 
-Maya looked back over her shoulder at Kwitn, her eyes shining with quiet delight through her snow goggles.
+"Clear sky after a nor’easter always drops the bottom out," Mac said, his eyes scanning the vast, frozen sweep of the river channel below. "Radiational cooling. Without a cloud layer to hold the heat, the earth radiates every calorie straight up into the void."
 
-"Tenant is sleeping like a log," she whispered. "Blankie is still tucked up to his ears."
+From inside the front of Maya’s heavy Mackinaw, nestled in the fur-lined pocket she had sewn directly over her sternum, Scar’s nose appeared. The squirrel sniffed the glacial air, let out a single, disgusted squeak, and immediately withdrew his head beneath the wool flap, leaving only the very tip of his black tail visible.
 
-"Best neighbor in New Brunswick," Kwitn chuckled softly. "Doesn't burn our firewood, doesn't eat our dry squash, and keeps the mudflats clear come spring."
+"Smart animal," Mac remarked with a dry grin.
 
-They moved out past the heavy cedar trunnion gate, which swung smooth and silent on its grease-soaked pivot pins. Kwitn had spent two days in late October packing the hinge barrels with a blend of bear tallow and graphite dust; cold weather that would freeze automotive wheel grease into hard paste had no effect on the animal fat mixture.
+"He refused to come out until I fed him three cracked butternuts," Maya said, adjusting the hood of her coat. "He’s got four pounds of dried corn stashed under my mattress up in the watchroom. If we get snowed in until June, he’ll be fatter than the bear."
 
-The world outside the perimeter was an absolute wilderness of white silence. The soundscape was entirely different from the lush, whispering rustle of summer. In winter, the forest had no soft edges. The spruce needles were frozen stiff as wire; when the wind gusted through the canopy, the trees didn't sigh—they clattered like racks of dry bone. Every step of their snowshoes produced a rhythmic, dry *crunch-crunch-crunch* that carried two hundred yards across the frozen river basin.
+"Speaking of the bear," Mac said, turning toward the interior stairwell, "we need to check the ravine."
 
-They climbed the short rise toward the Canadian National rail bed, following Nipn’s trail. The wolf had already crested the rail embankment, his ears pricked forward toward the rock cut of the Blind Siding three hundred yards to the west.
+Twenty minutes later, they stepped out through the lower double doors of the lighthouse base onto the packed drift of the courtyard.
 
-Kwitn held up a mittened hand. Maya stopped instantly, dropping her weight into a balanced crouch, her eyes sweeping the perimeter with the calm, methodical scan they had drilled throughout the autumn.
+Between them and the forest stood a pair of traditional bear-paw snowshoes, leaning against the cedar logs of the wood-shed. Mac had spent three weeks of November evenings carving the frames from seasoned white ash poles, steaming them over the copper wash-boiler on the galley stove to achieve the broad, oval recurve that could float a two-hundred-pound man over powder snow without sinking four inches. The webbing was genuine rawhide—unsplit cow-gut and deer babiche, soaked in warm water, woven into a tight, octagonal diamond mesh that sang like guitar strings when plucked, and sealed against wet slush with three coats of boiled linseed oil and melted pine pitch.
 
-"Two o'clock," Maya whispered, pointing with the tip of her ash staff. "Against the signal box."
+The physics of the bear-paw frame was an ancient compromise of the boreal forest: thirty inches long by fourteen inches wide, lacking the trailing tail of the Huron pattern so that a hunter could pivot in place within a dense hemlock thicket without tangling the frame in deadfall branches. The balance point was set two inches behind the toe mortise, allowing the tail to drag lightly through the powder while the toe cleared the crust on every forward stride.
 
-Kwitn adjusted his snowshoes and stepped up onto the crown of the rail ballast, where the wind had scoured the snow down to a three-inch crust over the iron rails.
+Maya knelt on the packed snow, unbuckling the oiled harness straps. She slotted the toe of her heavy pac-boots into the leather mortise, pulled the heel strap snug around the rubber rand, and buckled the brass tongue into the third hole with the practised efficiency of someone who had done it fifty times. She stood up, planted her white ash staff in the snow to test her footing, and took two broad, sweeping steps forward.
 
-There, standing twenty yards ahead beside the rusted steel cabinet of an old railway relay switch, was a human figure.
+The ash snowshoe floated effortlessly on top of the wind-crusted drift.
 
-It did not turn. It did not lurch forward. It did not groan.
+"How does the ankle feel on the pivot?" Mac asked, kneeling to strap on his own wide, thirty-six-inch frames.
 
-It stood frozen mid-step, its right foot lifted four inches off the ties, its left knee slightly bent. It was a man, or had been one—dressed in the tattered remains of a blue synthetic winter parka that had lost half its polyester fill to brambles and snagged wire. His hands were bare; the flesh of his fingers was not pale or purple, but a deep, translucent, waxy black-white, frozen so thoroughly that ice crystals had burst through the skin along the knuckles like sugar frosting.
+Maya rotated her right foot, listening to the crunch of the rawhide against the crusted crystals. "Solid. No lateral play. The sheepskin pad under the ball of the foot takes seventy percent of the heel-strike impact. Your arithmetic on the rawhide tension was dead on."
 
-His face was turned slightly toward the gray sky. The jaw hung slack, the tongue inside the mouth a solid, grayish-pink wedge of ice. The unblinking eyes were milky spheres of opaque slush, frosted over by the wind.
+"Good," Mac said, rising to his full six-foot-two height. He pulled his heavy beaver-fur mittens over his hands and slung his six-foot laminated ash longbow over his left shoulder, along with a waterproof sealskin quiver containing twelve four-fletched hunting arrows tipped with hand-forged 1095 carbon steel broadheads. "Nipn, lead out."
 
-"Complete somatic vitrification," Maya said, stepping up alongside Kwitn. Her breath billowed in a long, white plume that dissolved instantly in the dry air. She leaned forward, inspecting the corpse from three feet away without touching it. "Look at the tissue along the zygomatic arch. The interstitial fluids froze, expanded, and ruptured the cell membranes. The whole neural circuit is inert. It’s not in a state of suspended animation—it’s structurally wrecked at the cellular level."
+The gray wolf didn't need a harness or webbing. His broad, fur-padded paws, equipped with thick webbing between the toes and long, blunt claws that gripped the ice like steel crampons, were the original snowshoes of the boreal forest. With a soft, joyous whine, Nipn leaped over the four-foot drift beside the wood-shed and bounded into the spruce woods, his long silver tail floating behind him like an arching plume.
 
-"In summer, they're a biohazard," Kwitn said, stepping around to the figure's rear. "In winter, they're just bad statues."
+They followed his track into the shelter of the timber.
 
-He did not use the heavy bear-spear. In this cold, thrusting a long pole into frozen bone risked shattering the ash shaft or chipping the carbon-steel point on ice-hardened tissue.
+Inside the forest, the temperature felt immediately warmer. The dense canopy of mature red spruce, balsam fir, and hemlock had caught eighty percent of the snowfall on its drooping boughs, creating a cathedral of deep, emerald shade and muffled silence. Beneath the trees, the snow lay soft, powdery, and only eighteen inches deep. Every twenty paces, a faint shower of dry, glittering crystals fell from the branches above, drifting down like diamonds in the pale winter sunlight that lanced through the canopy.
 
-Instead, Kwitn reached to his belt, drew the short-handled carpentry hatchet, and stepped in close. He positioned the flat, hardened poll of the hatchet precisely against the base of the skull, just above the first cervical vertebra—the C1/C2 junction they had dissected over tea back in August.
+Maya moved behind Mac with steady, rhythmic precision. Her white ash staff rose and fell in time with her left foot, the iron spike biting into the frozen ground beneath the powder with a dull, reassuring *thunk*.
 
-He did not deliver a wild, sweeping chop. He gave the back of the neck a firm, sharp, four-inch tap, exactly as if he were driving a two-inch casing nail into a dry pine stud.
+"Look at the hemlocks," she whispered, pointing with the tip of her staff toward a grove of massive, three-hundred-year-old giants on the western slope of the ravine.
 
-*Tock.*
+The base of each hemlock was surrounded by a wide, snow-free circle of red-brown needles. In the sheltered pockets beneath the lower boughs, small flocks of black-capped chickadees and boreal nuthatches were flitting between the cones, their cheerful *chick-a-dee-dee* calls cutting through the crystalline silence.
 
-The sound was shockingly brittle, like a hammer striking a block of cold parsnip or a chunk of river ice.
+"A microclimate," Mac said quietly, pausing beside a massive gray trunk. "A mature hemlock canopy cuts wind velocity by ninety percent and holds the air temperature six degrees warmer than the open meadow. The deer know it. Look at the runway."
 
-There was no spray of black septic blood. There was no splatter. The frozen brainstem and medulla oblongata simply shattered into granular, crystalline shards inside the frozen cranial vault. The mechanical tension holding the frozen tendons in place gave way with a faint, structural *crack*.
+Crossing their path was a deeply rutted trench in the snow, beaten down by dozens of sharp hooves. Three white-tailed deer—a heavy doe and two half-grown yearlings—were standing sixty paces away in a thicket of striped maple, their large, brown eyes watching the two humans with calm, unhurried curiosity. They were browsing on the tender, green terminal twigs of the maple saplings, their thick, gray winter coats dusted with frost.
 
-The figure did not fall like a fainting person; it tipped over like a wooden post, hitting the snow-crusted rail ties with a dull, hollow *thud*.
+Nipn stopped ten paces ahead, his ears cocked, his tail low and motionless. He looked back at Mac, his yellow eyes asking a question.
 
-"Clean," Maya remarked, stepping back as Nipn sniffed the frozen hem of the parka with mild, disdainful curiosity before turning his nose toward the tree line. "Zero aerosol. Zero fluid contamination. If the old-world prepper manuals had spent less time obsessing over high-capacity assault rifles and more time studying simple thermodynamics, half the cities might have survived the first January."
+Mac gave a very slight, slow shake of his head. "Not today, old friend. The root cellar is full. Let them winter."
 
-"Cities don't have enough firewood to survive a January even without the dead," Kwitn replied, sliding the hatchet back into its leather loop. "You put five hundred thousand people in high-rise apartments when the natural gas lines depressurize at thirty below, and they'll burn their furniture in four days, burn the floorboards in six, and freeze to death in their beds by day ten. The cold doesn't care about geopolitics."
+The wolf gave a single, soft huff through his nostrils, turned his back on the deer, and trotted onward toward the lip of the hemlock ravine. The deer watched him pass, their ears pivoting like radar dishes, but they did not run. In the deep cold, every ounce of metabolic energy was precious; unprovoked flight was a death sentence. Under the silent laws of *Netukulimk*, hunter and prey shared a quiet, watchful truce across the winter snow.
 
-They dragged the frozen body by its parka hood off the rail bed, rolling it down the embankment into a deep drift behind a stand of dense alder scrub. In spring, when the snow melted, the river scavengers—the ravens, the coyotes, and the spring bears coming out of their dens—would clean the bones long before the ground thawed enough to support bacteria.
+At the head of the ravine, where the limestone ledges formed a natural amphitheater sixty feet above a frozen spring, Mac slowed his pace.
 
-Two hundred yards further west, at the mouth of the rock siding, they found the second one.
+"There," he murmured, pointing with his mittened hand toward the base of an enormous, overturned white pine.
 
-This one had fallen during the initial blizzard, caught in the deep drift between two fallen spruce trunks. It was buried up to its chest in hard-packed powder, its arms outstretched like frozen branches. The wind had sculpted an aerodynamic snow-tail behind its shoulders, carving it into the landscape as if it were a permanent feature of the Canadian Shield.
+The pine had fallen three decades ago, its massive root-ball—a disc of earth, stones, and tangled cedar roots twelve feet across—propped vertically against the limestone cliff. Over the autumn, the hollow space beneath the root-ball had been backfilled with four wagon-loads of dry hemlock needles, dead leaves, and shredded cedar bark. Now, the entire structure was buried beneath an eight-foot drift of pure white snow, forming an unbroken mound that resembled a miniature glacier.
 
-Maya stepped forward on her snowshoes, tapped the base of its skull with her own hatchet—*tock*—and watched the head drop an inch into the snow collar.
+Except for one detail.
 
-"That's twenty-two since November," she said, pulling a small wooden pencil and a square of stiff, hand-pulled rag paper from her inner chest pocket. She made a precise tally mark beside a small hand-drawn map of the railway siding. "The density is dropping off drastically. The ones that didn't find shelter in the towns were either caught in the open during the first freeze or drifted into the tidal marshes and got swept into the bay by the ice floes."
+At the highest point of the mound, where the cedar roots met the limestone overhang, a small, circular chimney three inches wide had melted through the snow crust. The edges of the hole were rimmed with thick, feathery needles of hoarfrost, white and delicate as lace. And from the opening, rising steadily into the sub-zero air, was a faint, shimmering plume of translucent steam.
 
-"The herd mechanics break down when the weather turns," Kwitn said, adjusting the strap of his shoulder bag. "They don't have the sense to build a fire, they don't have the sense to put on a coat, and they don't have the sense to follow a deer trail into the thick cedar swamps where the wind can't reach. Nature doesn't negotiate with things that don't know how to adapt."
+Maya stepped closer, leaning on her staff, her eyes wide with wonder.
 
-He looked at the small, square sheet of paper in Maya’s mitten. Even in the sub-zero chill, the paper was supple, thick, and distinctly textured, bearing a faint, creamy oatmeal tone and a clean, deckled edge.
+"Ursus," she whispered.
 
-"How is the ink holding up in the cold?" he asked.
+Mac nodded, his face softening with deep, reverent respect. "Five hundred and fifty pounds of sleeping muscle and fat. Listen."
 
-Maya smiled beneath her scarf, tucking the pencil and paper back into the warm interior pocket of her anorak. "The paper is holding up better than the ink. The iron gall ink turns sluggish below zero, but the sheet itself doesn't crack or fray like that cheap wood-pulp loose-leaf we found in the rail office. It feels like real parchment."
+They stood motionless in the snow, holding their breath.
 
-"That's because it *is* real parchment," Kwitn said, turning his snowshoes back toward the river trail. "Or as close as you get without skinning a calf. Once we check the ice traps, we're boiling another batch of rag pulp. Auntie Elizabeth sent two bags of worn linen and cotton work pants on the last draisine before the tracks iced over, and we've got three cords of clean maple ashes waiting in the leach barrel."
+From the dark, subterranean depths beneath the root-ball, muffled by six feet of insulating snow and cedar duff, came a sound that set the soles of their snowshoes vibrating: a deep, rhythmic, subterranean rumble. It was not a snore; it was the slow, thunderous respiration of an apex predator whose heart rate had dropped to eight beats per minute, whose body temperature had dropped only a few degrees, and whose metabolic fire was slowly burning sixty gallons of salmon oil and corn fat to generate pure, living heat in the frozen dark.
 
-"Good," Maya said, her eyes shining with quiet, practical delight. "Because my medical ledger is at forty pages, and I’m just getting to the winter pulmonary remedies."
+*Huuuuh... haaaah... huuuuh... haaaah...*
+
+"He’s fifty degrees warmer than the outside air down there," Maya whispered, her engineering mind calculating the thermal efficiency of the den. "The dead air trapped in the snow crust provides an R-value of roughly two point five per inch. Six feet of snow is R-one-hundred-and-eighty. Plus the heat of his own mass radiating against the limestone bedrock. He’s essentially sitting inside a biological thermos."
+
+"He won't wake until the sap runs in the sugar maples in late March," Mac said softly. "He took twelve bushels of our corn and thirty gaspereau, and in return, his presence on this ridge tells every pack of coyotes and every wandering raider within twenty miles that this valley is occupied by something that cannot be killed with an iron pipe."
+
+He reached out and patted the frozen limestone ledge above the chimney, a gesture of quiet, wordless kinship between two sovereigns who had divided the river shore between them.
+
+"Sleep well, brother," Mac murmured in the low vowels of the L'nu tongue. "*Nmultes ap.* We will see you when the ice breaks."
 
 ---
 
-### III. The Art of the Rag Mill
+### III. The Shutter on the Ridge and the Sussex Starvation
 
-The transition from modern industrialized wood-pulp paper to archival rag paper was not a matter of rustic romanticism; it was a matter of ruthless, practical longevity.
+They emerged from the spruce woods onto the high headland three hours after noon.
 
-Modern paper, Kwitn had explained to Maya during their long discussions over the workshop bench in late autumn, was manufactured using mechanical and acid-chemical processes that left short, brittle cellulose fibers laden with residual lignins and acids. Within five to ten years in a damp coastal climate, acid-pulp paper turned yellow, grew brittle as dried onion skin, and literally digested itself from the inside out.
+The winter sun was already beginning its low, angled descent toward the western ridges, casting long, cobalt-blue shadows across the white expanses of the meadow. As they approached the base of the lighthouse, a sharp, metallic sound cut through the silence.
 
-Rag paper, by contrast—the stuff of Gutenberg Bibles, medieval botanical codices, and eighteenth-century ship's logs—was made from long-chain cellulose fibers derived from worn linen, hemp rope, and pure cotton rags. When boiled in a mild alkaline lye made from clean hardwood ash, the fibers were stripped of oils, dirt, and gums without breaking the molecular chains. A sheet of hand-pulled rag paper could be soaked in seawater, dried over a stove, folded ten thousand times, and still hold its ink three hundred years later.
+*CLACK. CLACK-CLACK. CLACK.*
 
-In the lower workshop level of the Stone Light, where the heat from the big masonry chimney warmed the stone walls to a steady ten degrees Celsius, Kwitn and Maya had constructed a complete, self-contained miniature paper mill.
+Maya froze, her right hand tightening on her ash staff. She looked up at the lantern gallery sixty feet above.
 
-The process had taken three weeks of trial, error, and meticulous carpentry:
+On the iron railing of the upper watchroom gallery, mounted to a swivel bracket Mac had welded from scrap rail, was the optical shutter telegraph. The three slatted louvers of black sheet iron were pivoting on their bronze bushings, snapping open and shut against the blinding sky, reflecting flashes of brilliant white sunlight across the bay toward the southern headlands.
 
-```mermaid
-flowchart LR
-    A["Raw Material:<br>Cotton & Linen Rags"] --> B["Ash Lye Boil:<br>pH 10.5 Sugar Maple Ash"]
-    B --> C["Freshwater Flume Rinse:<br>Clean Silt-Free Water"]
-    C --> D["Hardwood Maceration:<br>Mortar & Pestle Beating"]
-    D --> E["Vat Slurry:<br>Fibers Suspended in Water"]
-    E --> F["Deckle & Mold:<br>Wire Screen Lift"]
-    F --> G["Couching & Press:<br>Wool Felts & Maple Screw"]
-    G --> H["Gelatin Sizing:<br>Cartilage & Bone Broth Dip"]
-```
+"Fort Folly," Mac said, his eyes instantly narrowing as he looked toward the south.
 
-"The key," Kwitn said, standing over the large, copper-lined wooden vat filled with lukewarm, clean water from the upper cistern, "is fiber dispersion. If the pulp is too coarse, you get lumps that catch the pen nib. If you beat it to death, you destroy the fiber length and the paper loses its tear strength."
+Five miles down the shoreline, on the high bluff above Shepody Bay where the Mi'kmaw community of Fort Folly stood perched like an eagle’s eyrie, a tiny point of silver fire was winking back at them from the ridge. It was the return shutter on Noel’s watchtower, clicking its coded pulses across the frozen salt air.
 
-Maya stood beside the heavy ash-log mortar. In her hands, she held a four-pound sugar maple stamper—a heavy wooden mallet with a faceted, iron-banded head that Kwitn had turned on his foot-treadle lathe.
+"Nipn, inside," Mac commanded, his voice dropping into hard, flat utility.
 
-Inside the mortar was a thick, oatmeal-like paste of boiled linen fibers. Three days earlier, they had cut two worn pairs of cotton-duck work pants and an old linen tablecloth into one-inch squares, boiled them for eight hours in a weak solution of maple-ash lye in the big cast-iron cauldron, and rinsed the resulting softened mass in cold creek water until the rinse ran clear as crystal.
+The wolf trotted obediently into the lower entry vestibule. Mac and Maya stepped through the heavy double doors, unstrapped their snowshoes in twenty seconds, and left them propped against the cordwood stack. Mac didn't bother to remove his heavy wool coat. He led the way up the circular iron stairwell, his boots ringing against the granite steps with rapid, heavy clatter, ascending sixty feet through the cold heart of the tower until they burst through the trapdoor into the glassed lantern room.
 
-Maya brought the mallet down into the mortar with a rhythmic, measured cadence: *thump... thump... thump... thump.*
+The watchroom was bright, cold, and smelling of machine oil and optical glass.
 
-With every blow, the long, interlocking fibers of the linen were teased apart, frayed, and fibrillated, turning into a creamy, cottony mash without cutting the fibers into dust.
+Mac immediately stepped to the brass naval telescope mounted on its heavy oak tripod before the south-facing casement. He pulled off his beaver mitten with his teeth, gripped the brass focusing collar with his bare fingers, and leaned his eye to the eyepiece.
 
-"This is remarkably good therapy," Maya observed between strokes, her breathing steady and rhythmic. "If modern hospital administrators had been required to spend two hours a day beating linen rags with a four-pound maple club, the healthcare system might never have collapsed."
+"What is Noel saying?" Maya asked, stepping to the brass telegraph lever beside the window. She had learned the Morse-derivative optical code from Auntie Elizabeth’s ledger during the long November evenings. Her eyes tracked the winking light five miles away on the snowy bluff. "Three short. Two long. Break. Four short. One long."
 
-"It keeps the blood moving in the forearms," Kwitn replied with a faint smile. He took a handful of the beaten pulp from the mortar, dropped it into a glass jar of clean water, and gave it a sharp shake.
+She murmured the letter translations under her breath: "*R-A-I-D-E-R-S... T-R-A-C-K... T-W-E-L-V-E... S-U-S-S-E-X...*"
 
-He held the jar up to the lantern light. The tiny, snow-white fibers floated in the water like tiny suspended clouds, neither clumping into knots nor sinking instantly to the bottom.
+Maya stopped, her jaw tightening. "Twelve men. On foot. Following the Canadian National rail bed from the west cut."
 
-"That's it," he said. "The freeness is right. Dump the charge into the vat."
+Mac adjusted the telescope, pivoting the heavy brass barrel forty degrees to the northwest, aiming past the frozen loops of the Petkotkweyak toward the deep, rock-walled railway cutting where the old main line curved out of Salisbury.
 
-Maya scraped the beaten pulp into the copper vat, and Kwitn took a broad cedar paddle, stirring the mixture with long, figure-eight strokes until the entire vat became a uniform, milky suspension of water and suspended cellulose.
+The magnification of the three-inch coated achromatic lens pulled the landscape ten times closer. The snowy railway bed appeared in startling, high-contrast detail: the black line of the rail crown, scoured clear by the northwest wind; the massive white drifts choking the ditches; and, moving along the center of the ties like a line of black ants crawling through a sugar bowl, a straggling column of human figures.
 
-From the drying shelf, he picked up the **mold and deckle**.
+"I see them," Mac said, his voice as level and cold as a sheet of window glass.
 
-The tool was a masterpiece of Kwitn’s winter joinery: a pair of matching rectangular frames made from fine-grained, quarter-sawn white ash, joined at the corners with pegged bridle joints that would not warp or twist when repeatedly submerged in water. The lower frame—the *mold*—was covered with a tightly stretched sheet of fine brass wire mesh, eighty wires to the inch, supported from beneath by a ribbed grid of narrow cedar splines. The upper frame—the *deckle*—was a simple open rim that fit perfectly over the mold, acting as a temporary fence to retain the pulp slurry on the screen.
+"How far out?" Maya asked, leaning over his shoulder.
 
-"Watch the wrist angle," Kwitn said, handing the assembled frame to Maya. "It's all in the wave."
+"Three miles. Past the old culvert where I found you in July."
 
-Maya took the frame by the short ends, her fingers resting lightly on the ash rim. She leaned over the vat, dipped the far edge of the mold into the slurry at a forty-five-degree angle, submerged it entirely, and brought it up level through the water in one smooth, continuous sweep.
+"How are they moving?"
 
-As the frame cleared the surface, gallons of water rushed downward through the brass wire screen, leaving a thin, perfectly uniform sheet of white fibers caught on the wire.
+Mac paused, studying the gait of the figures through the glass. "Badly. They don't have snowshoes. They’re post-holing through the knee-deep drifts between the wind-scoured stretches. One man in front is breaking trail with an axe in his hand, wrapped in dirty yellow insulation batts tied to his torso with electrical wire. The two behind him are dragging an open wooden box—looks like an overturned livestock feeder—on rusted iron runners."
 
-Before the last water drained through, Maya gave the frame a quick, delicate shake—first forward and back, then side to side. The motion interlocked the floating fibers in both directions, eliminating the grain weakness inherent in machine-made paper.
+"The wounded?" Maya asked.
 
-"Look at that," Kwitn murmured, genuinely impressed. "Most people hesitate on the lift and get a thick ridge at the bottom edge. That's as even as machine bond."
+"Or their stolen gear," Mac corrected. "No coats. They’re wearing layers of denim jackets, garbage bags, and deer hides with the raw fat still freezing on the inside. Three rifles among them—looks like old thirty-thirty lever-actions and a twelve-gauge pump. The rest have iron pry-bars, machetes, and axes."
 
-"I spent six years threading sixteen-gauge intravenous catheters into collapsed veins in the back of moving ambulances," Maya said, lifting off the deckle frame with steady hands. "A steady hand on a wire screen is a pleasant change of pace."
+Maya stepped to the secondary telescope, swinging the smaller glass to bear on the cutting.
 
-On the wire mold, exposed to the air, lay a wet, glistening, translucent sheet of raw, unpressed paper.
+She focused the lens with a sharp, practiced twist. The magnification brought the lead figure into sharp relief. The man’s face was black with frostbite across both cheekbones and the bridge of his nose; his beard was a matted, frozen clump of yellow ice; his mouth was open, panting in ragged, desperate gasps that sent thick bursts of steam into the sunlight. Around his neck, tied with a greasy length of hemp cord, hung a blackened, twisted horseshoe—the iron brand Mac had hammered into the rail tie when he broke Cody’s gang in the autumn.
 
-Kwitn had laid out a thick pad of heavy woolen felts—cut from old wool blankets—on the bed of his **maple screw press**. The press was a robust bench-top machine built entirely of mortised oak timbers, featuring a massive, hand-cut sugar maple screw, three inches in diameter, that could exert over two tons of mechanical downward pressure through a turned ash lever.
+"It’s not Cody," Maya said, her knuckles whitening on the brass barrel. "Cody’s dead. Or they ate him."
 
-"Couching," Kwitn instructed, pronouncing the word *coo-ching* in the traditional papermaker's terminology.
+"It’s the rest of them," Mac said. "The Sussex camp. When the nor’easter hit, their propane tanks went dry and their wood supply rotted under five feet of snow. They’ve been living in the ruins of the agricultural college barns for two months. They’re starving, Maya. That kind of hunger doesn't look for terms. They’re coming to this river because they know two things: there is food here, and if they stop moving, they will freeze into solid blocks of tallow before midnight."
 
-Maya turned the ash mold upside down in one decisive, rolling motion, pressing the wet sheet of pulp flat against the damp wool felt. She rubbed the back of the brass wire mesh with the palm of her hand, then lifted the mold away at a sharp angle.
+Maya lowered her eye from the glass. She looked at Mac. There was no terror in her dark eyes, no panic, no trembling hesitation. What showed on her lean, weathered face was the cold, flint-hard calculation of an Acadian woman who had planted sixty bushels of flint corn with her own blistered hands, who had cured sixty cords of maple with her own sweat, and who had no intention whatsoever of letting thirteen frostbitten predators burn her home to the bedrock.
 
-The wet fibers released cleanly from the wire, adhering to the woolen felt in a crisp, sharp-edged rectangle of virgin paper.
+"The windbreak fence is fourteen feet high with snow," she said, her voice dropping into tactical cadence. "They can't breach the lower courtyard from the west without climbing a forty-degree drift in full view of the lighthouse parapet. If they follow the rail line, where will they hit?"
 
-"First sheet," Maya said, her eyes alight.
+"The red gorge," Mac answered without looking up from the lens. "They’ll reach the rail trestle where the stream cuts down to the river weirs. The bridge deck is clear of snow because of the wind slot. They’ll see our smoke from the gorge, realize the lower gate is fortified, and try to cut down the frozen mud flats along the river ice to flank us from the cove."
 
-"First of forty," Kwitn replied, laying a second damp wool felt over the top of the wet paper. "Dip again."
+"The ice on the flats is six feet thick," Maya noted.
 
-For the next two hours, the lower workshop became a quiet, rhythmic dance of water, wood, and fiber. Maya dipped, shook, and couched; Kwitn layered the wool felts and managed the pulp vat. By the time the copper vat began to clear of suspended fiber, they had a "post" of forty-two sheets of wet paper, interleaved with woolen felts, standing six inches high on the bed of the screw press.
+"The ice on the flats is a labyrinth of death," Mac countered, rising from the telescope. "The ebb tide turned twenty minutes ago. In two hours, the water level beneath the ice will drop twenty-five feet. The shelf ice along the cove is suspended in mid-air over empty mud caverns. If twelve men put their boots on that crust without knowing the channel line, the river will do our work for us."
 
-Kwitn stepped up to the maple screw, swung the ash lever around, and engaged the heavy oak platen.
+"And if they don't break through?"
 
-*Creak... groaaan...*
+Mac looked down at his laminated ash longbow resting on the watchroom bench. His pale blue eyes were entirely devoid of pity. In the unvarnished reality of the Petkotkweyak winter, mercy shown to raiders who had come to slaughter and burn was simply suicide by another name.
 
-The massive maple threads bit down. As the pressure mounted, water began to weep from the edges of the felt stack, first in heavy drops, then in streaming rivulets that cascaded down the drainage channels of the press bed into a copper collection bucket below.
+"Then we break them," Mac said.
 
-Kwitn hauled on the lever with both arms, throwing his back into the turn until the timber frames of the press groaned with stored elastic energy.
+He turned to the optical telegraph, gripped the brass lever, and sent a four-character sequence south across the bay:
 
-"Hold that pressure for ten minutes," he said, wiping a bead of sweat from his forehead with his sleeve. "That forces out eighty percent of the free water and consolidates the hydrogen bonds between the cellulose chains. When they come out of the press, they'll be strong enough to handle with bare fingers."
+*S-T-A-N-D... F-I-R-M.*
 
-"And then the sizing?" Maya asked, checking the small cast-iron pot simmering gently on the side burner of the workshop stove.
+From the Fort Folly bluff five miles away, Noel’s winking shutter snapped back its single, resolute answer:
 
-"And then the sizing," Kwitn affirmed.
+*A-K-N-O-W-L-E-D-G-E-D.*
 
-Sizing was the critical final chemistry that turned raw, absorbent blotting paper into true writing paper. Without sizing, ink applied to paper would bleed outward through capillary action like a drop of water on a paper towel.
+Mac unlatched the heavy wooden chest beneath the watchroom window. From inside, he pulled out his winter defense kit: three heavy bundles of four-fletched broadhead arrows; a two-gallon stoneware jug of refined birch-bark oil, thick and flammable as kerosene; six mechanical rail-dog spring-traps Maya had modified in the blacksmith shop with sixty-pound leaf springs and four-inch serrated steel jaws; and his double-bitted felling axe, its twenty-eight-inch hickory haft freshly rubbed with tallow and its Swedish steel bits ground to an edge that could shave the hair from a man’s forearm.
 
-To prevent this, Kwitn and Maya had prepared a traditional **gelatin size** by simmering clean deer bone, sinew, and fish skin scrap in water until it reduced into a clear, light-amber broth rich in natural collagen, adding a single pinch of natural potassium alum to harden the gelatin.
+"Maya," Mac said, handing her four of the spring-traps by their heavy forged iron chains.
 
-When the pressed sheets were peeled from the woolen felts—now damp, leathery, and surprisingly tough—they were passed through the warm gelatin bath, pressed lightly a second time to remove excess liquid, and hung on polished horsehair lines across the ceiling of the warm living snug above.
+She took them without a word, her hand curling around the cold iron links. Her ash staff was tucked under her arm, its iron spike glinting in the pale winter light.
 
-By nightfall, four dozen sheets of pure, acid-free rag paper hung suspended in the warm, dry air above the woodstove like rows of cream-colored sails. As they dried, the room filled with the clean, earthy scent of warm linen, cedar wood, and pure animal gelatin.
-
-Maya reached up, gently touching the corner of a dry sheet near the stovepipe.
-
-The paper was stiff, smooth, and had that unmistakable, musical *snap* when flexed—the crisp, ringing rattle of genuine, high-grade rag bond that no modern chemical paper could ever replicate.
-
-She turned to Kwitn, a wide, luminous smile breaking across her face.
-
-"Mac," she said, holding the sheet up to the warm yellow light of the kerosene lamp, revealing the faint, beautiful laid-lines of the brass wire mold woven into the fabric of the page. "We can write the whole world down on this. It will last five hundred years."
-
-"Five hundred years," Kwitn agreed, his voice quiet, looking from the paper to the woman standing beneath the lantern light. "Provided nobody spills their tea on it."
+"Let’s show these town wolves what the red river pays for meat," she said.
 
 ---
 
-### IV. The Ice-Hole Run
+### IV. The Blood on the Pressure Ridge
 
-If summer on the Petkotkweyak was defined by the abundance of the vegetable gardens and the frantic gathering of firewood, winter was defined by the silent, frozen architecture of the river.
+The winter dusk fell over the valley like a purple bruise.
 
-The Petitcodiac did not freeze into a smooth, placid skating rink. The massive Fundy tides—still pushing thirty vertical feet of seawater under the ice twice a day—heaved, fractured, and buckled the river ice into chaotic, jumbled pressure ridges six to ten feet high along the channel edges. Between these heaved ramparts of salt-slush ice lay narrow, deep-water tidal guts where the current tore through at eight knots beneath a floating roof of five-foot-thick shelf ice.
+At four o’clock, the sun slipped behind the hemlock ridges, leaving the sky painted in streaks of incandescent violet, cold rose, and bruised charcoal. The temperature, which had hovered near thirty below at midday, dropped instantly into the minus-thirties, the air contracting with a high, thin whistling sound as the wind reversed, blowing out of the north down the frozen slot of the river gorge.
 
-In these deep, oxygenated tidal channels beneath the ice, the winter fish ran.
+Mac stood fifty feet back from the rail trestle, crouched in the blue shadow of a massive granite boulder that formed the eastern abutment of the bridge.
 
-The primary quarry of late January was the **tomcod** (*Microgadus tomcod*)—known to the Mi'kmaq as *punamu*, and to the Acadian settlers as the *frostfish*. Unlike other species that became torpid in cold water, the tomcod entered the brackish estuaries in midwinter specifically to spawn, packing their small, cod-like bodies with protein and clean, nourishing fat. Running alongside them were schools of winter rainbow smelt, crisp and silver as new coins.
+He wore his full winter stalking gear: a white canvas anorak over his Mackinaw coat, the hood pulled low over his fur cap, completely breaking his outline against the crusted drifts. Across his knees lay the six-foot ash longbow, strung with a sixteen-strand Flemish loop of waxed linen that had been conditioned with beeswax to prevent stiffening in the intense frost. Twelve broadheads were planted upright in the snow bank beside his right boot, their feathers angled for an instant, blind draw.
 
-At ten o’clock on a crystal-clear February morning, with the temperature hovering at a brisk minus eighteen and the wind dead calm, Kwitn and Maya hauled their winter sled down the steep creek trail to the ice shelf.
+Beside him, Nipn lay flat on his belly in the drift. The wolf was invisible—his silver-slate coat blending seamlessly with the blue shadows on the snow crust, his black nose tucked beneath his front paws to hide his breath, his yellow eyes fixed with absolute, unblinking focus on the rail cutting three hundred yards away.
 
-The sled was a traditional six-foot ash **toboggan**, steam-bent at the front curl and bound entirely with raw-hide thongs that allowed the ash slats to twist and flex over ice hummocks without snapping iron fasteners. The underside of the ash runners had been surfaced with strips of ultra-high-molecular-weight (UHMW) polyethylene salvaged from an old snowmobile skid plate, allowing the sled to glide across hard-packed wind-crust with virtually zero friction.
+Fifty yards to the south, concealed behind the parapet of the living fence on the upper terrace, Maya stood with her ash staff planted in the snow. Beside her on the cedar rail rested the heavy leaf-spring rail ballista Mac had welded to the corner post in October—a brutal, three-foot-wide crossbow mechanism forged from a freight car leaf spring, cocked with a hand-cranked ratchet and loaded with a three-foot shaft of turned white ash tipped with a five-inch railroad spike.
 
-Nipn ran point, trotting thirty paces ahead, his nose low to the ice. Wolves possessed an instinctive, uncanny ability to read ice thickness; where a man saw only flat white snow, the wolf could hear the hollow, booming resonance of thin shell-ice over an air pocket or scent the wet salt-slush leaking through a tidal fissure. Whenever Nipn veered left around a pressure ridge, Kwitn followed his track without question.
+She didn't need to guess where the raiders were.
 
-"Here," Kwitn said, stopping the toboggan near the outer bend of the creek mouth, where the fresh water of the stream cut a deep, swirling trough beneath the main river ice before joining the tidal channel.
+Through the dead, frozen silence of the twilight, the sound of their approach was as loud as a freight train.
 
-He unloaded the gear: a heavy, hand-forged **ice chisel** (*an ice spud*) with a two-inch carbon-steel bit welded to a six-foot ash pole, two spruce-splint basket traps weighted with river stones, a roll of tarred braided nylon line, and a pair of short, hand-whittled cedar jigging sticks.
+*Crunch. Scrape. Clack.*
 
-Kwitn set his snowshoes aside and went to work with the spud.
+The raiders were shuffling down the wind-scoured ballast of the rail bed, their boots slipping on the frozen iron ties. There were eleven of them now—one had dropped into a snow-filled ditch two miles back and been left where he fell. They moved like sleepwalkers, huddled in their rags, their heads down, their shoulders hunched against the stinging wind. In the center of the pack, four men were hauling the wooden feeder box on its rusted iron runners, the wood groaning and shrieking against the bare ballast.
 
-*Thump! Crunch! Thump!*
+They stopped at the western end of the trestle.
 
-He drove the heavy steel chisel into the clear blue river ice with rhythmic, downward thrusts, using the weight of the iron to shatter the frozen crystal. Within five minutes, he had chopped a clean, circular hole twelve inches in diameter through eighteen inches of solid freshwater ice.
+The lead raider—a gaunt, skeletal man with sunken yellow eyes and teeth rotted to black stubs—lowered his felling axe, leaning his forehead against the frosted haft as he panted. His cheeks were raw, purple sores of dead, necrotic tissue from fourth-degree frostbite; his bare left hand was wrapped in dirty fiber-tape, the frozen fingers curled into claw-like hooks that could no longer straighten.
 
-As the chisel punched through the final bottom layer, water surged upward under hydrostatic pressure, rising within an inch of the ice rim—dark, tea-colored, and crystal clear.
+He looked across the bridge span.
 
-"Look at the depth," Maya said, peering down into the hole through a cut tube of birchbark that eliminated surface glare. "Three fathoms. The current is steady toward the main bend. I can see the sandy gravel on the bottom."
+In the gathering gloom, the Old Stone Light rose above the headland like an ivory monolith against the violet sky. The tiny plume of wood smoke curling from its chimney was gray, fragrant, and thick with the scent of burning birch. To eleven men who had eaten nothing but boiled leather and frozen hemlock bark for three weeks, that smoke was an hallucination of warmth, life, and meat that obliterated every shred of human caution.
 
-Kwitn reached into the toboggan and pulled out the bait: a wooden tub containing small, salted chunks of gaspereau and dried clams from their autumn stores. He baited four barbless forged steel hooks on short dropper loops, attached a three-ounce cast lead sinker, and lowered the line into the dark water.
+"There," the lead man croaked, his voice cracking like dry kindling. "Look at it. The tower. They got fires going. They got corn."
 
-He handed the cedar jigging stick to Maya. "Bounce the sinker two inches off the bottom. *Punamu* feed along the substrate interface. When you feel a faint, heavy tap, don't jerk like you're setting a salmon hook—just lift smooth and hand-line it onto the ice."
+"The gate’s blocked," a second man rasped, his face hidden behind a filthy wool scarf. He gestured toward the western courtyard where the fourteen-foot snow rampart rose unbroken against the stone walls. "We can't get over that drift without ladders. We’d be picked off like crows."
 
-Maya took the small cedar stick, seated herself on a thick sheepskin pad laid over the toboggan, and began the subtle, hypnotic jigging motion.
+The leader spat a mouthful of dark, bloody saliva onto the snow. He looked down into the gorge.
 
-Within sixty seconds, the cedar tip dipped.
+Below the bridge deck, the frozen stream cut down through the hemlocks to the broad, terrifying expanse of the river flats. From above, the red river looked like an undulating, blood-colored highway—a desert of rafted ice pans and frozen silt ridges winding five miles south toward Shepody Bay.
 
-"Contact," she said calmly.
+"We go down the creek bed," the leader rasped, pointing with his axe toward the river ice. "We cut across the flats to the cove below the lighthouse. The cliff on that side is stepped terraces. We climb the garden walls from the water and hit them through the lower doors before they know we’re out of the trees."
 
-She raised the stick with her right hand and gathered the braided line with her left in smooth, overlapping loops.
+"That ice looks rotten, Garret," a younger man whispered, shivering so violently his knees knocked against each other beneath his ragged denim trousers. "You can hear it groaning down there. It sounds like something’s moving underneath."
 
-A moment later, a sleek, olive-brown fish with a pale belly, three dorsal fins, and a delicate single chin barbel broke the surface of the hole, flapping vigorously onto the clean snow crust.
+"The water’s frozen four feet down, you stupid bastard," Garret snarled, turning on him with raised axe. "You want to sleep in the ditch tonight? You want to turn into a frozen side of beef before dawn? Follow me down the creek or I’ll split your skull right here and take your boots."
 
-It was a thirteen-inch tomcod, fat, healthy, and glistening in the winter sun.
+He didn't wait for an answer. Garret turned, scrambling down the steep, snow-choked embankment of the railway fill, sliding on his heels into the bed of the frozen brook.
 
-In the sub-zero air, the fish did not flop for long; within forty seconds, the thin film of water over its scales froze into a frosty armor, flash-freezing the fish in prime, pristine freshness.
+The other ten men followed him, their breath coming in ragged, whistling gasps as they slid into the shadowy hemlock ravine, dragging the heavy wooden box behind them.
 
-"That's dinner," Maya said, unhooking the fish with gloved fingers. "And breakfast. And if we get fifteen more, that's four quarts of fish stock and salted fillets for the root cellar."
+From his vantage point behind the granite boulder, Mac watched them descend.
 
-Beside the hole, Kwitn lowered the large spruce-splint basket trap, baited with crushed clam shells and fish heads, securing the tether line to a heavy ash stake driven deep into the ice crust. The basket trap would fish continuously on the tidal surge, catching smelt and tomcod as they sought shelter from the main current in the eddy behind the creek point.
+He didn't move a muscle. He didn't draw an arrow. His face was an ancient mask of dark stone. He reached out with his left hand and laid two fingers on Nipn’s neck, feeling the wolf’s muscles coiled like high-tensile steel springs beneath his fur.
 
-For two hours, they sat on the vast expanse of the frozen river, bathed in the blinding, pale gold light of the winter sun.
+"Wait," Mac whispered into the wolf’s ear. "Let the bay take them."
 
-There was no sound in the universe except the distant, occasional *boom-crack* of shelf ice shifting with the tide, the soft hiss of the wind through the spruce boughs on the bluff above, and the rhythmic *slap-slap* of silver fish hitting the snow.
+The raiders reached the mouth of the stream where the freshwater ice merged with the red salt floes of the Petkotkweyak.
 
-Nipn lay curled on a spare wool blanket on the sled, his nose tucked under his tail, opening an eye only when a particularly large tomcod landed near his paws.
+The river was at mid-ebb.
 
-By two in the afternoon, the wooden box on the toboggan held thirty-four tomcod and over fifty rainbow smelt—forty pounds of pure, wild protein harvested without firing a single shot, burning a single drop of fuel, or exposing their position to anything beyond the horizon.
+Twenty feet below the surface crust, billions of gallons of freezing saltwater were draining back into the Bay of Fundy at eight knots. As the supporting water dropped, the massive sheets of red ice spanning the tidal mud caverns were left hanging in mid-air—thousands of tons of frozen mud and shale supported only by the friction between the fractured blocks. To an experienced coastal hunter, the surface was an obvious death trap; every hollow booming sound, every spiderweb fracture in the red crust was a warning that the floor was hollow.
 
-Maya leaned back against the uprights of the toboggan, her cheeks flushed a healthy, radiant pink from the cold air, taking a sip of hot spruce-needle tea from a thermos flask.
+Garret stepped onto the river flats.
 
-"You know," she said, looking out across the vast, empty expanse of the frozen Petkotkweyak toward the distant ridges of Albert County, "when I worked seventy-hour weeks in the trauma center in Saint John, my apartment looked out over a four-lane ring road and a petrochemical refinery. I spent four thousand dollars a month on rent, takeout, and parking fees just so I could be tired enough to sleep six hours before doing it again."
+His heavy leather boots crunched on the red, silt-covered ice. He took ten paces out into the frozen channel, aiming for the southern point where the lighthouse cliff dropped into the cove.
 
-She gestured with her tin cup toward the frozen river, the ancient granite lighthouse perched like a fortress on the spruce bluff, and the clean white trail winding back through the woods.
+"See?" he shouted back over his shoulder, his voice filled with savage, desperate triumph. "Solid as a quarry ledge! Get that box moving, you cowards!"
 
-"I have never worked harder in my life than I have this winter," she continued, her voice quiet, steady, and filled with a profound, calm clarity. "My hands have calluses on the palms. I smell like wood ash, fish scales, and pine pitch. And I have never felt more sane, more secure, or more completely human."
+The four men hauling the wooden feeder box stepped onto the ice behind him. The iron runners screeched against the gritty, salt-crusted surface.
 
-Kwitn looked at her over the rim of his own cup. His dark eyes softened with that deep, unspoken understanding that had grown between them over the long months of shared labor.
+Then the Petkotkweyak spoke.
 
-"My grandfather used to say that the modern world wasn't built for people," Kwitn said softly. "It was built for clocks. It convinced everyone that time was money, and money was something you could trade for life. But time isn't money. Time is just the space between the tides where you have to do what needs doing to keep your people warm and fed."
+It did not begin with a crack. It began with a long, subterranean groan that vibrated through the bedrock of the headland—a sound like a five-hundred-ton hydraulic press crushing green timber.
 
-He picked up the haul-rope of the ash toboggan and stood up on his snowshoes.
+Directly beneath the wooden box, a section of shelf ice fifty feet square sheared away from the frozen mudbank. The tidal cavern below—a thirty-foot drop into a swirling, black abyss of half-frozen silt water racing out to sea—opened like the jaw of a leviathan.
 
-"Come on," he said, offering her his mittened hand to help her up from the sled. "The wind is coming around to the northeast. Let's get these frostfish into the cellar and put the kettle on before the snow starts again."
+There was no time to scream.
 
-Maya took his hand, letting him pull her up onto her snowshoes in one easy, fluid motion. She didn't let go of his hand immediately; for two quiet heartbeats, her gloved fingers tightened gently around his, her dark eyes meeting his with an openness that had no hesitation in it.
+The ice plate tilted at a vertical sixty-degree angle. The four men, their wooden box, and three of the men behind them slid into the gap as smoothly as ballast stones dumped from a scow. The iron runners of the box struck the frozen mud wall below with a hollow *THUD*, followed by a muffled, sickening splash as sixty tons of red ice collapsed back into the hole, sealing the surface with a deafening *BOOM* that sent shockwaves rippling across the flats.
 
-"Lead on, Mac," she said softly.
+The remaining four raiders—Garret and three others—froze in terror on the edge of the fracture.
+
+The river had swallowed seven men in three seconds, without leaving a trace of blood, a rag of clothing, or an echo on the frozen air. The red ice simply sat there, flat, jagged, and indifferent under the purple twilight.
+
+"By the salt and the black mud!" the young man shrieked, dropping his axe and falling to his knees. "By the shale! The ground ate them! The river ate them whole!"
+
+"Shut up!" Garret screamed, his yellow eyes bulging with madness as he backed away from the crevasse. "Get to the bank! Get up the bank!"
+
+They turned to run back toward the mouth of the stream.
+
+Standing across the narrow mouth of the ravine, silhouetted against the white snow of the railway fill, was Mac.
+
+He did not look like an archivist, a scholar, or a peaceful homesteader. He stood sixty paces away, his massive six-foot-two frame planted broad and immovable on the snow crust, his white anorak catching the violet afterglow of the sky. The six-foot ash longbow was raised in his left hand, the waxed linen string drawn back to the corner of his bearded jaw, holding eighty-five pounds of tension with fingers as steady as forged iron.
+
+Beside him, Nipn stood with his head lowered, his white fangs bared in a silent, terrifying snarl, the silver ruff around his neck standing four inches high.
+
+"Drop the iron," Mac’s voice rang across the frozen mud flats, carrying the flat, concussive authority of an iron bell.
+
+Garret looked at him. The madness in the starving man’s eyes flickered between blind terror and the suicidal fury of a cornered beast. He gripped his felling axe with his frozen, taped hands, his rotted teeth bared in a snarl.
+
+"Shoot him!" Garret screamed to the man beside him who was carrying the rusted thirty-thirty rifle. "Shoot him and take the—"
+
+The release of Mac’s bowstring was not a twang; it was a deep, concussive *THWACK* that sounded like an axe striking green ash.
+
+The broadhead arrow traversed the sixty paces in three-tenths of a second. The four-inch forged steel tip entered the rifleman’s chest squarely through his denim jacket, punched through the breastbone with a sickening *crack*, and exited eight inches between his shoulder blades. The man was lifted off his feet by the kinetic momentum of the four-ounce ash shaft, thrown backward onto the red ice, and lay dead before his head struck the crust.
+
+The remaining two men behind Garret dropped their weapons instantly.
+
+One dropped an iron pry-bar; the other dropped a rusted machete. Both men fell flat on their bellies in the snow, their arms thrown over their heads, sobbing in uncontrollable, convulsive terror.
+
+"Don't shoot!" one of them wailed, his voice muffled by the ice. "Please! We’re starving! By the tide, we’re freezing to death!"
+
+Garret did not drop his axe.
+
+He stood alone on the red ice, his chest heaving, his yellow eyes fixed on Mac with the unreasoning, rabid hatred of a predator that had lived by the blade for six years and knew no other tongue. With a ragged, howling shriek that was half animal and half madman, Garret lunged forward across the twenty yards of ice separating them, raising the double-bitted felling axe high above his right shoulder.
+
+Mac did not nock another arrow.
+
+He lowered the longbow, leaning it against the snowbank with unhurried calm. He stepped forward three paces to meet the charge, his bare hands dropping to his sides.
+
+When Garret reached him, bringing the heavy steel axe down in a two-handed diagonal strike aimed straight for the crown of Mac’s head, Mac’s movement was an explosion of ancient, grounded Kinap sovereignty.
+
+He did not dodge backward. He stepped inside the arc of the swing, his left forearm rising like an iron girder to intercept Garret’s wrists before the axe could reach full velocity. The impact of the collision sounded like two hardwood logs striking together. Garret’s arms stopped dead in mid-air, the shockwave vibrating through his frozen shoulders with an audible pop.
+
+Before the raider could blink, Mac’s right hand shot forward, his calloused palm driving into the center of Garret’s breastbone in a short, devastating palm-heel strike that carried two hundred and twenty pounds of mass and fifty years of grounded physical momentum.
+
+*CRACK.*
+
+Three ribs shattered instantly. Garret’s breath left his lungs in an explosive spray of bloody froth. He was hoisted clean off his boots and thrown backward ten feet, his body slamming into the red pressure ridge with a dull, sickening thud. The felling axe flew from his nerveless fingers, spinning across the ice before burying one bit four inches deep into a drift of frozen mud.
+
+Garret lay on his back, his mouth working silently, his eyes rolling up toward the stars that were beginning to pierce the violet dusk.
+
+Mac walked over to where the two surviving raiders lay sobbing in the snow.
+
+He reached down with his right hand, gripped the collar of the first man’s coat, and hoisted him to his feet with one arm as easily as if he were lifting a bag of grain. The man dangled in Mac’s grip, his boots barely touching the ice, his face gray with frostbite and terror.
+
+"Listen to me," Mac said. His voice was not loud. It was soft, level, and colder than the wind blowing off the bay. "You came down this river to burn my home, kill my partner, and take the food we grew from the dirt."
+
+"We... we were hungry..." the man choked out, tears freezing on his dirty cheeks.
+
+"The woods are full of game for men who know how to ask," Mac said evenly. "You chose to be wolves. But you are not wolves. You are town vermin who think a rusted iron pipe makes you kings of the earth."
+
+Mac lowered the man until his boots touched the ice, then shoved him back five paces.
+
+"Pick up your dead partner," Mac commanded, pointing toward the rifleman lying on the crust. "Strip his coat. Strip his boots. Drag him five miles south to the open water at Mary’s Point. If you ever put a foot on this rail bed again, I will not waste an arrow on you. I will let Nipn hunt you down through the hemlocks until there is nothing left of you to bury."
+
+The two men didn't wait to be told twice.
+
+With trembling, clumsy fingers, they stripped the frozen coat and torn pac-boots from the dead rifleman, seized the corpse by the wrists, and began dragging it frantically south across the red ice flats toward the bay, running as if the old spirits of the salt mud were snapping at their heels.
+
+Mac stood on the edge of the channel, watching their black silhouettes shrink into the purple darkness of the river.
+
+He did not offer them food. He did not offer them dry socks. In this world, the line between sovereignty and extinction was drawn in iron; those who chose the path of the predator were owed nothing by the men who tended the earth.
+
+From the top of the terrace, the snow crunched beneath the steady, rhythmic tread of ash snowshoes.
+
+Maya descended the slope, her white ash staff held firmly in her right hand, her Mackinaw coat buttoned tight against the bitter night air. She stopped beside Mac, looking down at Garret’s motionless body lying against the pressure ridge, then out across the vast, frozen sweep of the Petkotkweyak where seven men had vanished beneath the ice.
+
+She looked at Mac. "Is it done?"
+
+Mac picked up his longbow from the snowbank, slinging it over his shoulder. He reached down and picked up Garret’s fallen felling axe, testing the weight of the Swedish steel head in his palm.
+
+"It is done," he answered quietly. "The Sussex camp is broken. The ones who ran won't survive the night without fire, and they don't have matches."
+
+From inside Maya’s coat, Scar poked his whiskered snout through the flap. He looked at the axe in Mac’s hand, let out a single, triumphant chatter that echoed across the frozen gorge, and buried himself back into the warm, ninety-eight-degree valley between her breasts.
+
+Maya reached out her gloved left hand and laid it on Mac’s forearm, feeling the massive, steady pulse of his blood beneath the heavy wool.
+
+"Come inside, Mac," she said softly. "It’s dark. The wind is rising. Let’s go home."
 
 ---
 
-### V. Midwinter Hearth & Headology
+### V. The Solstice Hearth and the Boreal Spring
 
-The midwinter blizzards of February were of an entirely different order from the dry cold of January.
+By midnight, the sky had cleared to an absolute, terrifying perfection.
 
-They arrived as massive, low-pressure cyclonic storms roaring up the Atlantic seaboard, drawing moisture from the Gulf Stream and slamming it directly into the sub-zero continental air mass sitting over the Gulf of St. Lawrence. When a nor'easter hit the Bay of Fundy, it didn't snow in gentle flakes; it unloaded six feet of dense, heavy, sea-moist snow driven by sixty-mile-an-hour gales that erased the boundary between the earth and the sky.
+The temperature on the lighthouse watchroom gallery rested at thirty-six below, but inside the living snug sixty feet above the frozen river, the cylinder stove hummed with a deep, radiant orange glow that filled the room with the dry, comforting scent of burning sugar maple, steeped sweetgrass, and drying cedar shavings.
 
-For three days, the Stone Light was completely cut off from the outside world.
+A large pot of hominy stew with dried venison, smoked gaspereau, and wild leeks bubbled on the corner of the iron cooktop, filling the snug with an aroma that made the mouth water. On the heavy oak worktable, two tallow candles cast a warm, golden illumination over three opened volumes: a 1782 treatise on tidal hydraulics by the French Acadian engineer Joseph de Ville, Gerard’s *Herball*, and Auntie Elizabeth’s bound ledger of traditional Mi'kmaw agricultural calendars.
 
-The wind shrieked against the four-foot-thick cut-granite walls of the tower with the sound of a passing freight train, hurling sheets of frozen sleet against the heavy storm shutters. Outside, the world was a howling, white void of zero visibility.
+Beside the books sat the polished brass-bound cedar chest that held the valley’s true wealth: thirty linen sacks of seed, each labeled in Mac’s precise architectural hand. Six hundred ears of Tuscarora white flour corn; eight hundred ears of eight-row flint corn; ninety pounds of cranberry pole beans; fifty pounds of black turtle beans; forty pounds of dry marrowfat peas; two pounds of winter squash seeds scraped from forty-two giant blue hubbards; and small, precious envelopes containing tobacco seed, sweetgrass rhizomes, and wild yarrow.
 
-Inside the living snug, however, the atmosphere was one of profound, impenetrable sanctuary.
+Nipn lay curled in his favorite spot beside the woodbox, his silver muzzle resting between his front paws, his breathing deep and slow in furnace-warmed contentment.
 
-The Jotul stove purred at a steady, rhythmic hum, radiating a deep, penetrating heat that soaked through the tongue-and-groove cedar paneling. On the top plate of the stove, a heavy cast-iron Dutch oven simmered gently, filling the room with the rich, savory aroma of slow-cooked tomcod chowder—made with dried sweet corn, diced root-cellar potatoes, wild chives, salt pork, and a splash of rich evaporated milk salvaged from an autumn run.
+Maya sat on the long cedar bench before the fire, her wool-socked feet pulled up beneath her, wrapped in her thick gray blanket. In her lap, fast asleep with his round belly swollen with pumpkin seeds and dried flint corn, Scar was curled into a tight, furry ball no larger than an orange. His tiny black claws were curled into the wool of her blanket, his tail wrapped securely around his nose, his small body vibrating with a rhythmic, contented purr that could be felt straight through the bench boards.
 
-Kwitn sat in the wide, steam-bent oak rocking chair he had restored over the winter, his boots resting on the stone hearth pad. In his lap rested a worn, paperback copy of Terry Pratchett’s *Guards! Guards!*, its pages dog-eared and softened by years of careful reading.
+Mac sat opposite her, his large hands carefully paring down the split ash haft of Garret’s captured felling axe with a small, curved drawknife. Fine, curling ribbons of white wood fell to the rag rug between his bare feet, smelling of fresh sap and oil.
 
-On the floor between the woodbox and the table, Nipn lay stretched out on his side, his massive paws twitching occasionally as he chased dream-hares across frozen fields, his soft, rhythmic breathing filling the quiet spaces between the gusts of wind outside.
+"He was an engineer once," Maya said softly, looking at the Swedish steel axe head resting on the table.
 
-Maya sat at the pine table under the bright, steady circle of light from the center kerosene lamp.
+Mac didn't look up from his work. "Who?"
 
-Before her lay the finished fruits of their winter papermaking: a hand-bound ledger of seventy-five octavo leaves of heavy, cream-colored rag paper, sewn through the fold with waxed linen thread and bound between two thin boards of quarter-sawn white cedar covered in supple, oil-tanned beaver leather.
+"The man on the ice. Garret. Before he charged you, I saw his hands. The calluses on his index fingers were drafting calluses—from holding an ink ruling-pen for twenty years. And the horseshoe around his neck was hung with an electrical ground-clamp."
 
-With a fine steel crow-quill pen dipped in homemade iron-gall ink, she was writing in a neat, elegant, clinical cursive script, meticulously illustrating each entry with precise botanical cross-sections and chemical mechanism flowcharts:
+"A lot of men were engineers once, Maya," Mac said, his drawknife taking a paper-thin shaving from the shoulder of the haft. "They built bridges, highways, and high-voltage transmission lines. But when the fuel stopped flowing and the supermarkets emptied out, their degrees didn't teach them how to split a rock maple trunk with an iron wedge. They didn't know how to ask the earth for food without an engine running."
 
-```
-===================================================================
-PETKOTKWEYAK PHARMACOPOEIA & SURGICAL PROTOCOL (VOL. I)
-Author: Maya Lin, RN / Kwitn Simon, L'nu
-Entry 14: Salicin Extraction & Concentrated Willow-Bark Tincture
--------------------------------------------------------------------
-Source: Salix bebbiana (Bebb's Willow) & Salix nigra (Black Willow)
-Active Component: Salicin (2-(Hydroxymethyl)phenyl-beta-D-glucopyranoside)
-Mechanism: Prodrug metabolized via hepatic oxidation into salicylic 
-acid. Non-selective COX-1 and COX-2 inhibitor. Decreases pro-inflammatory 
-prostaglandin synthesis.
-Indication: Tension cephalalgia, musculoskeletal trauma, febrile state, 
-mild to moderate somatic pain.
-Preparation Protocol:
-  1. Harvest inner green cambium layer during dormant winter/spring flow.
-  2. Macerate 100g fresh cambium in 500ml 40% ethanol (distilled corn wash) 
-     or 800ml boiling rainwater.
-  3. Steep sealed in dark stoneware crock for 21 days (tincture) or simmer 
-     reduced by half (decoction).
-Dosage: 30ml decoction q4-6h PRN. Minimal gastric mucosal ulceration 
-compared to synthetic acetylsalicylic acid due to lack of free acetyl group.
-===================================================================
-```
+"And you?" she asked, her dark eyes reflecting the firelight. "What were you before you came to this river ten years before the end?"
 
-Maya lifted the pen, blowing gently on the wet ink before leaning back in her chair and rolling her shoulders to work out the stiffness.
+Mac stopped his knife. He rested his elbows on his knees, looking into the glowing hearth through the open draft slide.
 
-She looked over at Kwitn, who was grinning quietly at a passage in his book.
+"I was a man who saw the machine slowing down," he answered quietly. "I worked in the archives at Mount Allison. I spent fifteen years reading the letters of the old L'nu chiefs, the journals of the Acadian dike-builders, the ledgers of the early Scottish stone-masons who quarried Mary’s Point. I saw that every civilization that built itself on petroleum and arrogance was just a three-day blizzard away from eating its own boots."
 
-"What's Vimes doing now?" she asked, reaching for her mug of mint tea.
+He looked across the table at Maya, his pale blue eyes clear and steady.
 
-"He's explaining to Carrot why you should never trust a million-to-one chance unless it's an exact million-to-one," Kwitn said, glancing up from the page. "Because nine times out of ten, a regular long shot just gets you killed, but a million-to-one chance crops up nine times out of ten in stories."
+"So I walked out to this ridge. I traded for this deed. I repaired the lighthouse tower with hydraulic lime and stone chisels. I planted the willows. I built the weirs. And I waited."
 
-Maya laughed—a rich, warm sound that filled the cedar-lined room. "That sounds like your entire philosophy of building construction."
+"For what?"
 
-"It's not a philosophy, it's basic mechanics," Kwitn replied, closing the book over his finger. "If you build a bridge assuming the river will only ever rise ten feet, the river will eventually rise eleven feet just to teach you a lesson in humility. If you build it for a twenty-foot bore, you can sleep through the spring thaw without listening for creaking timbers."
+"For someone who understood why the seed must be kept dry," Mac said.
 
-"And what do the books say about two people who spend three months trapped in a lighthouse during a zombie apocalypse without driving each other insane?"
+A deep silence fell between them—a silence filled not with emptiness, but with the quiet, unshakeable communion of two survivors who had crossed the threshold of the old world and built an empire out of forty acres of red mud, white ash, and sovereign iron.
 
-Kwitn tilted his head, his dark eyes sparkling with dry, gentle humor. "Pratchett called it *Headology*. Granny Weatherwax’s first rule: most problems in the world aren't caused by people being evil. They're caused by people being stupid, lazy, or trying to be clever when they ought to be cutting firewood. If you keep the stove stoked, keep the grease on the hinges, and don't pretend you're smarter than the weather, people tend to get along just fine."
+Maya reached out, her fingers touching the leather binding of Gerard’s *Herball*.
 
-Maya set her pen in the wooden groove of her desk stand, picked up her tea, and walked over to the hearth.
+"Tomorrow," she said, "the sun begins its journey north."
 
-She didn't take the other chair. Instead, with that easy, unhurried naturalness that had grown between them over the long winter, she sat down on the thick sheepskin rug directly beside Kwitn’s rocking chair, leaning her back against the side of his knee.
+"It does," Mac agreed, picking up his drawknife once more. "In eight weeks, the river ice will begin to rot from the bottom up. The tidal bore will carry sixty-foot ice floes out into Shepody Bay. By April, the red mud will smell of gaspereau and salt marsh hay."
 
-As she settled, Nipn opened one lazy amber eye, stretched his forepaws with a low, contented groan, and extended his massive, silver-gray snout across the sheepskin, his wet black nose questing forward to sniff the hem of Maya’s woolen blanket.
+"And the seeds?"
 
-Kwitn didn't look up from his book. He merely flicked a hand toward the wolf.
+Mac smiled—a broad, warm, genuine smile that transformed his weathered face into something youthful and bright.
 
-"Careful where you put your nose," Kwitn said in a dry, even voice. "She'll bite ya."
+"In February, Maya. We carry the cedar flats up to the lantern gallery. Three hundred square feet of southern glass. We start the flint corn, the yellow cranberry beans, the winter squash, and the Acadian tobacco. When Noel and Auntie Elizabeth bring the dory up the river on the spring tide, we will have enough seedlings to plant five acres of terraces."
 
-Maya looked up from the floor, one eyebrow arching in mock offense. "I don't think Nipn would bite me."
+Maya leaned back against the cedar wall, a soft, profound sigh escaping her lips. She looked down at Scar sleeping on her belly, then reached out to touch the smooth, polished grain of her white ash staff resting against the table leg.
 
-Kwitn turned a page. "I wasn't talking to you, Maya."
+In her lap, the red squirrel gave a tiny, contented squeak, shifting his position to bury his nose deeper into the folds of her fleece blanket, his round, fat belly rising and falling in rhythmic peace.
 
-Maya let out a short, incredulous burst of laughter, giving his shin a sharp, playful poke with the toe of her woolen sock. Nipn gave a low, appreciative chuff, resting his heavy chin squarely across Maya’s slippered feet as if claiming rightful possession of the floor space.
+Outside, sixty feet below the warm granite walls of the Old Stone Light, the Petkotkweyak raged against the night. The red ice cracked and boomed as the forty-foot tide surged through the subterranean channels, grinding the floes into red sand, sweeping the bones of the old world out into the deep, salt waters of the Atlantic.
 
-The room had cooled slightly as the wind outside shifted to a ferocious gust that rattled the chimney cowl.
-
-Maya pulled her gray wool blanket tighter around her shoulders, exhaling a long, contented breath. Without looking up, she leaned her head back against Kwitn’s thigh, her shoulder resting warm and firm against his shin.
-
-Kwitn did not pull away. He lowered his hand from the armrest, his rough, scarred fingers coming to rest gently on the curve of her shoulder beneath the wool blanket.
-
-Maya turned her face slightly, giving him that familiar, teasing glower from beneath her dark eyelashes—the exact same mock-stern expression she had given him on the night of the first October blizzard.
-
-"Don't flatter yourself, Simon," she said, her voice dropping to a low, intimate murmur that barely carried over the crackle of the maple logs. "Snuggling is warm. The warm is all I want right now."
-
-Kwitn smiled—a slow, genuine, quiet smile that reached all the way to the corners of his eyes.
-
-"Naturally," he said softly, his thumb gently brushing the soft wool of her blanket. "Strictly thermodynamic efficiency. First law of heat transfer: energy flows from the higher-temperature body to the lower-temperature body until thermal equilibrium is established."
-
-"Shut up, Mac," Maya whispered affectionately, closing her eyes and letting her head settle comfortably against him. "Just read your book."
-
-Kwitn opened *Guards! Guards!* again, resting the spine on the wide arm of the chair. He began to read aloud in a steady, rhythmic, low baritone, his voice weaving through the quiet room like a gentle spell, drowning out the howl of the Fundy gale outside until the only reality in the world was the heat of the Jotul stove, the soft breathing of the wolf on the hearth, and the steady, unbreakable warmth between them.
-
-An hour later, with the last chapter finished, Kwitn banked the stove for the overnight burn. He loaded three thick round billets of rock maple onto the glowing coal bed, closed the primary draft down to a hairline crack that would maintain a steady, slow secondary burn until dawn, and blew out the center kerosene lamp, leaving only the soft amber glow spilling from the stove’s mica window.
-
-Nipn rose from the rug, circled twice on his sheepskin bed beneath the woodbox, and curled back into a tight silver ball.
-
-In the darkness of the cedar loft platform, Maya had stripped down out of her heavy day flannels and wool trousers. She knew the hard physics of winter bedding: sleeping in damp, bulky daytime wool restricted circulation and trapped moisture. Dressed only in a thin cotton camisole and shorts, she lifted the heavy stack of down quilts and brain-tanned beaver pelts and slipped beneath the covers.
-
-Her bare knee brushed immediately against bare, muscled skin.
-
-Maya froze instantly in the dark, her breath catching in her throat.
-
-"...Simon."
-
-"Mmh?" Kwitn’s low, sleepy rumble came from beneath the down pillow beside her.
-
-"Are you... not wearing pants?"
-
-Kwitn didn't flinch. He stayed right where he was on his side of the wide platform, staring up at the dark rafters. "Wool blankets don't need flannel interfering with the loft, Maya. I’ve slept raw under furs my whole life."
-
-"A clinical warning might have been prudent."
-
-"You're the one who climbed under the beaver pelts."
-
-She was quiet for two heartbeats, her hand resting against the bedding between them, acutely aware of the radiant furnace heat coming off his chest—and, as she shifted slightly closer, the very natural, involuntary autonomic response taking place in the dark.
-
-Maya let out a breath that was half-gasp, half-muffled laugh. "Simon..."
-
-Kwitn stayed completely still, his voice calm, dry, and thoroughly unbothered in the dark.
-
-"Old actor once told his leading lady before a bed scene," Kwitn rumbled quietly: "*'I apologize in advance. Sorry if I do, and sorry if I don't.'*"
-
-Maya went dead still for a second, and then a helpless, muffled giggle broke from her throat, her forehead burying into the corner of the pillow.
-
-"Did you seriously just quote classic Hollywood cinema while we're huddled under five layers of fur in a blizzard?"
-
-"Seemed clinically relevant to the situation," Kwitn murmured mildly.
-
-With the awkwardness swept clean away, Maya let out a long, contented breath and slid all the way in against him, resting her head comfortably into the crook of his shoulder and laying her arm across his bare chest.
-
-As her bare thigh rested along his hip, she felt the undeniable, physical reality of what her proximity had set in motion.
-
-She didn't pull away. Her hand rested soft and steady over his ribs, feeling the heavy, calm beat of his heart. She gave a small, fond hum against his collarbone.
-
-"You know," she murmured softly, her breath warm against his skin, "in nursing school they taught us that autonomic vasocongestion in response to tactile stimuli is a sign of a robust cardiovascular system."
-
-"Is that what they called it?" Kwitn whispered, his chest vibrating beneath her palm.
-
-"Mmh. Very clinical." Maya settled her hips comfortably against him without a trace of hesitation, letting the heavy fur quilt drape over them like an impenetrable wall against the gale. "It would be an insult to both of us if you didn't. I'm not made of wood, Simon, and neither are you."
-
-Kwitn paused for half a beat, his large, calloused hand resting warm and steady on the bare curve of her waist beneath the camisole.
-
-"Well," he rumbled with quiet, deadpan amusement in the dark, "based on the immediate structural evidence under this quilt, one of us clearly is—and you're the one who supplied the timber."
-
-Maya froze for one stunned second before a helpless, muffled gasp of laughter exploded from her, her face burying straight into his neck as she gave his rib a sharp, playful pinch.
-
-"Simon! You did *not* just make that joke."
-
-"I'm a carpenter, Maya," Kwitn murmured, unbothered, his chest shaking with silent laughter. "You're the one who brought up wood in bed. I just report on local building materials."
-
-"You are incorrigible."
-
-"Better than being made of sugar maple. That stuff has a Janka hardness rating of fourteen hundred. You'd be terrible on the sheets, and I’d have had to oil you down with boiled linseed and beeswax three months ago."
-
-Maya snorted softly against his skin, shaking her head as she let her arm drape comfortably across his chest. "Go to sleep, carpenter."
-
-"Aye, Nurse Lin."
-
-Kwitn drew the heavy beaver-fur robe up over her bare shoulder, holding her warm and secure against his side as the Fundy blizzard raged harmlessly against the stone walls outside.
-
-Sometime in the deep, silent hours around three in the morning—when the gale outside reached its sharpest bite and the Jotul stove had settled into its steady, quiet bed of glowing red embers—the temperature in the loft dipped just enough for the body’s primal instincts to take over.
-
-Drifting in the deep, heavy sleep of someone who had worked physical labor all day, Maya turned unconsciously toward the heat source. Forgetting entirely in her sleep that she had shed down to bare skin under the quilts, she rolled fully against him, slinging one bare leg over his thighs and wrapping both arms around his neck in a deep, unguarded hug, pulling him in as if he were a life raft in a frozen sea.
-
-Her cheek rested soft against the hollow of his throat, her breathing slow and rhythmic, her chest pressed flush and uninhibited against his bare ribs in pure, trusting softness.
-
-Kwitn stirred faintly in the dark. He opened his eyes, feeling the sheer, warm weight of her draped across him—no tension, no defense mechanisms, no walls. Just the absolute, peaceful surrender of someone who knew, even in her subconscious, that she was entirely safe.
-
-A faint, quiet smile touched Kwitn’s lips in the dark. He didn't shift or disturb her; he simply brought his right arm around her waist, letting his broad hand rest gently against her hip, anchoring her against the storm while the world outside howled itself to pieces.
-
-When the first pale blue light of dawn finally filtered through the frost-rimed cedar shutters, Kwitn opened his eyes to find the storm had blown itself out into a quiet, frozen morning. 
-
-During the shifting, twilight hours of sleep, Maya had drifted from lying beside him to sprawling almost completely on top of him. Her chin rested squarely on his chest, her bare legs were tangled snugly between his thighs, and his broad, calloused hands had naturally settled over the soft curve of her hips and backside, cupping her firmly to anchor her against his chest and keep her from sliding off the platform.
-
-Maya’s long dark eyelashes fluttered. She stirred, let out a sleepy, feline stretch against his bare torso, and blinked up at him, her dark eyes still heavy with sleep.
-
-Kwitn became acutely aware of the exact placement of his hands beneath the beaver fur. Ever the respectful host, he hesitated for half a second, his fingers starting to ease back slightly so as not to overstep.
-
-Maya didn't pull away. In fact, she settled her weight a fraction deeper against him, her chin propped on his sternum, a sleepy, affectionate grin tugging at the corner of her lips.
-
-"Leave your hands where they are till I get my balance, Simon," she murmured in a low, raspy morning voice. "Plus... your hands are warm."
-
-Kwitn let out a low, rumbling chuckle that vibrated right through her ribcage, his hands settling back comfortably against her curves with steady, reassuring warmth.
-
-"You're remarkably light for someone who put away two bowls of frostfish chowder last night," he remarked mildly.
-
-"It's lean muscle mass, carpenter," Maya whispered, closing her eyes for another two blissful minutes of warmth, resting her cheek right over his heart. "And don't move. You're the best mattress in the Maritimes."
-
-"High praise from healthcare."
-
-"Take the compliment and keep the heat on."
+The wind howled across the frozen barrens of the Tantramar, screaming against the dressed stone quoins of the tower, but inside the snug, not a candle flickered. The fire burned steady, the iron was sharp, the seed was dry, and the commonwealth of the red river was unbroken.
 
 ---
-
-### VI. The Spring Bore & The Reclaimed River
-
-By the third week of March, the great silence of winter began to crack.
-
-It started not with warmth, but with light. The sun climbed higher into the southern sky each noon, transforming the brutal glare of the snowfields into a blinding, golden brilliance that softened the south-facing slopes of the red silt bluffs.
-
-Then came the sound.
-
-One afternoon in early April, while Kwitn and Maya were splitting cedar shingles on the south porch, a noise like a battery of heavy artillery boomed from the river valley three miles to the south.
-
-*CRACK-BOOOOM!*
-
-The entire bluff vibrated through the granite bedrock.
-
-Nipn leaped to his feet on the porch, his ears forward, his tail level, staring down toward the bend.
-
-"The ice is breaking," Kwitn said, dropping his froe and mallet.
-
-They climbed the spiral iron staircase of the Stone Light, emerging onto the high, circular catwalk of the lantern room seventy feet above the river basin.
-
-The spectacle below was breathtaking in its raw, elemental power:
-
-```mermaid
-flowchart TD
-    A["Spring Thaw:<br>Rising Temperatures & Runoff"] --> B["Artillery Cracking:<br>5-Foot River Shelf Ice Fractures"]
-    B --> C["The Tidal Bore Returns:<br>4-Foot Roaring Mud-Wave"]
-    C --> D["The Great Cleansing:<br>Ice Floes Crush & Sweep Remaining Necrosis"]
-    D --> E["The River Awakens:<br>Gaspereau Run, Smelt Runs, Rebounding Marsh"]
-```
-
-The massive five-foot-thick shelf ice that had locked the Petitcodiac since November was shattering under the immense, unstoppable pressure of the spring runoff and the rising Fundy tides. Giant plates of blue-white ice, some the size of city blocks, were buckling upward, grinding against one another with a deafening roar of splintering crystal, and tumbling downstream toward Shepody Bay.
-
-And then, roaring up around the bend from the south, came the **Tidal Bore**.
-
-It was not the polite, sluggish wave of modern summer doldrums. Swollen by melting snowpack from a thousand square miles of Acadian forest, the spring bore arrived as a four-foot wall of foaming, chocolate-brown water, surging upstream at ten knots against the falling river current.
-
-The roaring wave slammed into the ice jams, lifting thousands of tons of frozen rubble on its crest, smashing the stranded remnants of winter debris, and sweeping the river channel clean from bank to bank.
-
-Any wandering infected that had been frozen into the river mudflats or trapped along the lower marsh dikes during the winter were obliterated in minutes—crushed between colliding ice floes like dried reeds in an iron mill, ground into silt by the churning gravel bed, and carried out into the bottomless, scouring depths of the Bay of Fundy.
-
-The river was cleansing itself.
-
-Maya leaned against the bronze railing of the catwalk, the warm spring wind whipping loose strands of hair across her face. A wide, breathless smile spread across her features as she watched the muddy water reclaim its ancient, natural bends.
-
-"It’s totally clear," she breathed. "The whole valley. The rail cut, the creek mouth, the marsh... it's all washed clean."
-
-"The river does the work," Kwitn said, standing beside her, his arm resting lightly against her shoulder. "You don't fight the Fundy tide. You just give it room to swing its shoulders."
-
-Suddenly, Nipn gave a low, sharp chuff—his silent alert signal—and looked southeast across the glistening mudflats toward the distant, forested promontory of **Amlamgog (Fort Folly)** six miles downriver.
-
-Kwitn reached for the brass ten-power spotting scope mounted to the catwalk stanchion, training the crosshairs on the high stone bluff above the mouth of the Memramcook.
-
-On the summit of the ridge, catching the brilliant afternoon sun, a series of bright, rhythmic flashes blinked against the dark spruce canopy.
-
-*Flash... flash... pause.*  
-*Flash-flash-flash... pause.*  
-*Flash... flash.*
-
-"The Clacks," Maya said, her voice dropping in focused concentration as she read the six-shutter shutter code from memory. "It's Chris and Auntie Elizabeth. What are they sending?"
-
-Kwitn tracked the rhythmic flutter of the wooden heliograph shutters:
-
-```
-[ A M L A M G O G  -  S T A T I O N  1 ]
-S - P - R - I - N - G   T - H - A - W   C - L - E - A - R
-A - L - L   W - E - L - L   A - T   F - O - R - T
-G - A - S - P - E - R - E - A - U   R - U - N N - I - N - G
-S - E - E - D   C - O - U - N - T   R - E - A - D - Y
-R - A - I - L   D - R - A - I - S - I - N - E   C - L - E - A - R - E - D
-S - E - N - D   M - A - C   A - N - D   M - A - Y - A   S - I - G - N - A - L
-```
-
-Kwitn stepped over to their own six-shutter optical telegraph box mounted on the south side of the lantern gallery. He pulled the counterweighted ash operating levers, swinging the polished brass reflector into the sunlight and sending their response flashing back across the gleaming mudflats:
-
-```
-[ S T O N E   L I G H T   -   C A M P   1 ]
-A L L   W E L L   H E R E
-F O R T R E S S   S E C U R E
-P H A R M A C O P O E I A   B O U N D
-F I S H   T R A P S   S E T
-C O M I N G   D O W N   R A I L S   N E X T   T U R N
-N E T U K U L I M K   H O L D S
-```
-
-Across the six miles of tidal water and reclaimed forest, a final, triple-flash of acknowledgment blinked from Fort Folly, then went dark.
-
-Maya turned to Kwitn. The sunlight caught the rich, golden undertones of her skin and the quiet, radiant confidence in her eyes.
-
-"Year One is done, Mac," she said softly.
-
-A low, familiar rustling sound drifted up from the garden slope below.
-
-At the entrance of the winter den, a massive black snout poked out through the melting snow. The four-hundred-and-fifty-pound Fundy bear, groggily blinking in the brilliant spring sunlight, pushed aside the patchwork woolen quilt with one giant front paw. The bear lumbered out into the soft, steaming clover, shook a winter’s worth of cedar shavings from its thick coat, stretched its front legs with a colossal, earth-shaking yawn, and gave a cheerful, rumbling *huff* toward the stone tower before ambling casually down to the creek to look for spring gaspereau.
-
-Wojkw, perched comfortably on Kwitn's shoulder, flicked its bushy white-tipped tail and gave the waking giant an approving little squeak.
-
-Kwitn looked out over the vast, breathing landscape of Petkotkweyak.
-
-Below them, the Three Sisters garden beds were emerging from the snow, the rich, black alluvial soil steaming gently in the spring sun. In the creek flume, the fresh water was rushing clear and cold, ready to turn the waterwheel. On the worktables inside the warm stone tower lay seventy-five leaves of permanent rag paper, forty pounds of smoked frostfish, eight cords of seasoned hardwood remaining in the dry stack, and three iron bear-spears resting sharp and ready on their wall brackets.
-
-They had not merely survived the fall of the old world.
-
-They had out-thought it. They had out-built it. They had woven themselves into the living, seasonal rhythm of the land until the collapse was no longer an apocalypse, but simply the clearing of an overgrown field before the planting of a permanent, sustainable harvest.
-
-Kwitn reached out, his hand closing warm and solid over Maya’s fingers on the bronze railing. She laced her fingers through his without looking away from the river, leaning her shoulder firmly against his chest.
-
-Nipn sat between them, his silver muzzle lifted to the fresh, salty spring wind blowing in off the Bay of Fundy, smelling the coming green of the spruce buds, the running of the fish, and the endless, open future of the reclaimed land.
-
-"Year One is done," Kwitn said, his voice quiet, steady, and filled with the calm certainty of a man who knew the true weight of every beam, every joint, and every tide. "Let's go plant some corn."
-
----
-
-### [End of Book 1: *The Reclaimed River*]
+# The End of Book One

@@ -192,6 +192,8 @@ He tapped the wooden counter with his thick knuckles.
 
 He looked at her, his pale blue eyes warm with quiet, brotherly reassurance.
 
+"The women down at Fort Folly have gathered moss from that plateau since the glaciers retreated," Mac added, setting the cedar ladle back in its crock. "It grows in deep, golden cushions four feet thick. When you dry it over the stove, it's softer than down and holds twenty times its weight in water. Auntie Elizabeth gave us two bolts of heavy flax linen when we traded down at the ridge. We'll cut envelopes with wings that fold around your undergarments, fastened with polished bone toggles. You slide a pad of dry moss inside, wear it through the day, burn the used moss in the stove firebox, and boil the linen clean with wood-ash lye. Sustainable, sterile, and you'll never have to beg town scavengers for a moldy box again."
+
 "Drink that tea," Mac said gently. "Red raspberry leaf, yarrow, and wild mint from Auntie Elizabeth. It'll settle the cramps in twenty minutes. Then throw on your coat and grab a basket. We're heading out to the bog."
 
 ---
