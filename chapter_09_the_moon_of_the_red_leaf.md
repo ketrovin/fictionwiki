@@ -174,25 +174,25 @@ Maya blinked, her jaw going slack in utter astonishment.
 
 Mac picked up a clean wooden ladle, dipped it into the kettle of boiling water on the stove, and poured it into an earthenware mug over three spoonfuls of dried green leaves he pulled from a glass jar on the shelf.
 
-"Maya," Mac said, his tone as casual and practical as if they were discussing the tension on a dory halyard, "you are a human female. Your body has an endometrial lining that sheds every twenty-eight days when an ovum is unfertilized. It has been doing that for two hundred thousand years on this continent."
+"Maya," Mac said, his tone as calm and steady as if they were discussing the weather on the bay, "you're a woman. Women bleed with the moon. It's been that way since the first campfire was lit on this river."
 
 He set the steaming mug on the counter in front of her.
 
-"Do you honestly believe," Mac continued, an arched eyebrow rising over his pale blue eyes, "that the Mi'kmaq women of the Petkotkweyak, or the Acadian women who built the dykes along Shepody Bay, sat in their cabins and starved or died of shame because a chemical corporation in New Jersey hadn't invented plastic wrappers with adhesive wings?"
+"Do you honestly think," Mac continued, an arched eyebrow rising over his pale blue eyes, "that the L'nu women who lived on this ridge, or the Acadian grandmothers who worked the salt dikes, sat in their cabins crying because nobody invented plastic wrappers with sticky wings?"
 
-Maya stared at him, her mouth opening and closing like a landed gaspereau.
+Maya stared at him, her mouth opening and closing in surprise.
 
 "I... well... no, but—"
 
-"Bleached disposable pads are an industrial aberration, Maya," Mac said, leaning his hands flat against the counter. "A fifty-year consumer blip designed to create recurring corporate revenue by convincing half the human race that their own reproductive biology was dirty, shameful, and required disposable petroleum products to be managed."
+"Plastic pads were just another bad habit from the old cities," Mac said, leaning his hands flat against the counter. "Made to sell people something they never used to need, and make women feel ashamed of their own blood so they'd keep buying boxes every month."
 
-He tapped the wooden counter with his knuckles.
+He tapped the wooden counter with his thick knuckles.
 
-"Scavenging six-year-old pads from an abandoned drugstore is not only a fool's errand; it is biologically dangerous," Mac explained, his tone crisp with anatomical authority. "The plastic backing creates an anaerobic moisture barrier that traps skin heat, breeds *Staphylococcus* and *Candida* fungi, causes severe perineal chafing during physical labor, and requires petroleum solvents to manufacture. We do not use rotten plastic in this valley."
+"Going into an abandoned drugstore for six-year-old boxes is a waste of time, Maya," Mac said plainly. "The paper is damp, mice have nested in it, and wearing old plastic when you're working out in the cold will just chafe you raw and give you an infection. We don't need town garbage out here."
 
 He looked at her, his pale blue eyes warm with quiet, brotherly reassurance.
 
-"Drink that tea," Mac instructed gently. "It is dried red raspberry leaf, wild yarrow, and dried peppermint from Auntie Elizabeth’s garden. It will stop the uterine smooth muscle spasms in twenty minutes. Then put on your wool pea-coat and grab an ash basket. We are going to the bog."
+"Drink that tea," Mac said gently. "Red raspberry leaf, yarrow, and wild mint from Auntie Elizabeth. It'll settle the cramps in twenty minutes. Then throw on your coat and grab a basket. We're heading out to the bog."
 
 ---
 
