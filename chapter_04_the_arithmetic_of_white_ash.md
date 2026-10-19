@@ -217,7 +217,7 @@ For the first time in five months, the air didn't taste of burnt plastic, diesel
 
 She looked around the clearing, her jaw dropping.
 
-"Jesus, Mac," she whispered, her dark eyes darting from the low-slung, weathered cabin to the eight-foot wall of woven green wood encircling the homestead. "Is that... is that fence *growing*?"
+"Bloody hell, Mac," she whispered, her dark eyes darting from the low-slung, weathered cabin to the eight-foot wall of woven green wood encircling the homestead. "Is that... is that fence *growing*?"
 
 "Black willow, thorny hawthorn, and coastal white cedar," Mac said, walking down the three porch steps toward the workshop shed. "Braided and fused over ten seasons. Nature does not build in right angles, Maya. If you build a dead wooden fence, the Maritime damp rots the posts in seven years. If you plant a living fence, every storm makes the roots dig deeper, and every winter gale only tightens the weave."
 

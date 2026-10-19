@@ -1,4 +1,4 @@
-# The Petkotkweyak Chronicles — Master Lore & Homestead Bible
+# The Petkotkweyak Chronicles — Master Lore & Homestead Lorebook
 
 ---
 

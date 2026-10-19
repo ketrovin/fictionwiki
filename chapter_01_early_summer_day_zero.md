@@ -634,7 +634,7 @@ Beside him, emerging from the dark undergrowth of the hemlocks like a silver gho
 
 The wolf did not snarl. He did not bark. He simply stood at Mac’s left hip, his deep chest broad as a barrel, his amber eyes fixed directly on Vance’s throat with the calm, predatory certainty of a creature that killed eighty-pound deer for a living.
 
-The nineteen-year-old kid went white as paper. "Jesus... Vance... that’s a wolf. That’s a goddamn timber wolf."
+The nineteen-year-old kid went white as paper. "Bloody hell... Vance... that’s a wolf. That’s a goddamn timber wolf."
 
 Vance’s panic took the form of violent, nervous aggression. His trembling hands snapped the twelve-gauge shotgun closed with a loud, metallic *CLACK*.
 

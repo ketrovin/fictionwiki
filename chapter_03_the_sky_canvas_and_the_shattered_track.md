@@ -410,7 +410,7 @@ The blade was leveled directly at Mac’s throat.
 
 Her voice was cracked, raw from screaming through forty-eight hours of freezing rain, but it carried the fierce, feral snarl of a cornered she-cougar protecting a den.
 
-"Stay back, you son of a bitch! I swear to God I'll put this steel through your windpipe! I killed your buddy at the culvert, and I’ll take two more of you before I bleed out! Back off!"
+"Stay back, you son of a bitch! I swear on cold iron I'll put this steel through your windpipe! I killed your buddy at the culvert, and I’ll take two more of you before I bleed out! Back off!"
 
 Mac did not take a step backward. He did not take a step forward.
 
@@ -422,7 +422,7 @@ The woman stared at the wolf.
 
 Her breath hitched in her chest—a sharp, ragged gasp of sheer disbelief.
 
-"A wolf..." she whispered, her eyes wide, dark brown pupils dilated with shock and septic fever. "Oh God... you've got dogs... you're hunting me with dogs..."
+"A wolf..." she whispered, her eyes wide, dark brown pupils dilated with shock and septic fever. "Bloody hell... you've got dogs... you're hunting me with dogs..."
 
 "He's not a dog, miss," Mac said softly, his voice dropping into that rhythmic, comforting Maritime cadence that felt like a warm wool blanket laid over cold shoulders. "His name is Nipn. Mi'kmaw for Summer. And I am not hunting you. I am Mac. This ridge belongs to my house, and there are no raiders behind me."
 
@@ -666,7 +666,7 @@ He looked back at Cole.
 
 "Gather your broken friends," Mac commanded. "Drag them back to the highway. If I ever see your faces, or the faces of any scavengers you associate with, within five miles of this railway line again, I will not use my open hands. Do you understand me?"
 
-"Yes! Yes! God, yes!" Cole sobbed, clutching his broken wrist. "We're gone! We're gone!"
+"Yes! Yes! Yes, damn it!" Cole sobbed, clutching his broken wrist. "We're gone! We're gone!"
 
 Mac made a tiny gesture with his chin.
 
