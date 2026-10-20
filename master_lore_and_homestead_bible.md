@@ -16,6 +16,11 @@
   * That desire and density take effect instantaneously—as quickly as the sound of a gunshot reaches his ears.
   * Jacketed rifle rounds, heavy ballistics, buckshot, and shrapnel simply flatten, shatter, or deflect off his skin and clothing like hail hitting Mary's Point granite, dropping spent into the mud.
   * There are no glowing energy shields, visual auras, or metallic skin effects; he remains a normal-sized, weathered woodsman in a wool shirt and moose-hide vest whose flesh and covenant with the earth simply refuse ballistic entry.
+* **Channeling Mntu (The Azure Gaze):**
+  * In Mi'kmaw spiritual cosmology, *Mntu* (the primordial spiritual power and vital energy of creation) flows through the living world. As a *Kinap*, Mac can channel *Mntu* directly from the bedrock, the deep salt tide, and the ancient soil.
+  * In daily life, his eyes are quiet, weathered, and unassuming.
+  * But when he is **heavily channeling *Mntu***—whether anchoring himself against the crushing force of a tidal wave, withstanding heavy automatic fire, executing thirty-foot Kinap leaps, or entering lethal combat—the unmistakable **azure blue** flares visibly in his eyes.
+  * It is not a flashy comic-book effect, but a deep, piercing incandescence, like cold winter sunlight refracted through fifty feet of glacial sea ice or an electric arc deep underwater. To an enemy caught staring into his face, that azure gaze is the silent, terrifying realization that they are facing a sovereign titan of the red river.
 * **The Quiet Lethality (How Dangerous Mac Is):**
   * **Core Ethos:** Mac prefers peace. He wants to garden, boil sap, read Johnson and Pratchett, forge iron, feed his animals, and watch the tide. He avoids violence wherever possible because violence is a waste of energy, life, and the land's harmony.
   * **The Inevitable End:** *If you push him, he'll kill you.* No hesitation, no posturing, no theatrical movie one-liners, and no half-measures. When pushed past the line—when someone threatens Maya, his hearth, or violates the sovereign sanctuary of the headland—he ends them with cold, terrifying finality. He can catch a swinging axe by the blade, snap forged iron crowbars like brittle twigs, and neutralize armed hostiles without breaking a sweat or raising his voice.
