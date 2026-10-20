@@ -23,6 +23,13 @@
   * It is not a flashy comic-book effect, but a deep, piercing incandescence, like cold winter sunlight refracted through fifty feet of glacial sea ice or an electric arc deep underwater. To an enemy caught staring into his face, that azure gaze is the silent, terrifying realization that they are facing a sovereign titan of the red river.
 * **The Quiet Lethality (How Dangerous Mac Is):**
   * **Core Ethos:** Mac prefers peace. He wants to garden, boil sap, read Johnson and Pratchett, forge iron, feed his animals, and watch the tide. He avoids violence wherever possible because violence is a waste of energy, life, and the land's harmony.
+  * **The Combat Cadence (Peaceful Arrival -> The Inhale -> The Gaze -> Absolute Violence):**
+    1. *The Peaceful Arrival:* Mac always shows up peaceful, loose, and unassuming. Hands open or resting on a cedar staff, posture relaxed, voice quiet. He gives men every opportunity to turn their boats around and leave the river in one piece.
+    2. *The Line Crossed:* The moment it goes bad—an intruder racks a bolt, raises a rifle, laughs at a warning, or makes a move toward Maya or the homestead.
+    3. *The Inhale:* Mac goes dead silent. He draws a single, deep, measured breath through his nose, pulling *Mntu* straight out of the red bedrock and the salt wind into his lungs and sinew.
+    4. *The Look Up:* His head lifts, locking eyes directly with the target.
+    5. *The Azure Ignition:* The deep, incandescent azure blue ignites in his irises—cold, subterranean fire blazing in the dark.
+    6. *Violence:* Instantaneous, terrifying, unstoppable finality. Bulletproof density locks in, physical force multiplies, and the threat is ended without hesitation or wasted motion.
   * **The Inevitable End:** *If you push him, he'll kill you.* No hesitation, no posturing, no theatrical movie one-liners, and no half-measures. When pushed past the line—when someone threatens Maya, his hearth, or violates the sovereign sanctuary of the headland—he ends them with cold, terrifying finality. He can catch a swinging axe by the blade, snap forged iron crowbars like brittle twigs, and neutralize armed hostiles without breaking a sweat or raising his voice.
   * Combined with an intelligence network of every bird, wolf, and beast within ten miles, ambushing him is impossible.
 * **Animal Communion (Teachable):**
