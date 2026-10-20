@@ -139,7 +139,13 @@ Mac has spent ten patient years establishing this sanctuary on the high ridge ov
   * Indignantly chitters at anyone who gets too close; acts as Maya's hair-trigger personal proximity alarm.
   * Establishes Maya's impressive physical proportions through natural, hilarious situational comedy rather than objectification.
 
-### **Maya (Arriving Later in Book 1)**
-* Fierce, resilient, practical, well-endowed, and weary from post-collapse road travel.
-* Arrives injured; Mac treats her with ash crutches and Fundy pain-absorbing stones.
-* Becomes Mac’s student in animal communication and homestead craft, his partner in defending the valley, and the reluctant landlord of Scar the squirrel.
+### **Maya**
+* Fierce, resilient, practical, well-endowed, athletic, and razor-sharp. Former mechanical engineer and track runner from Moncton who fled enslavement in Sussex.
+* Arrives injured; Mac treats her with ash crutches, Fundy pain-absorbing stones, and herbal care.
+* **The Relationship Dynamic — Sovereign Partners & Future Lovers (Slow-Burn Romance):**
+  * **Strictly Non-Paternal:** Their bond is **never** father-daughter. They are two adult equals navigating a harsh post-collapse world.
+  * **The Slow-Burn Romance:** Built on deep mutual respect, shared labor, raw emotional vulnerability, and an intense, understated physical attraction.
+  * **Mac's Nature:** Mac is a timeless, rugged *Kinap*—ageless, weathered, profoundly grounded, possessing a calm, masculine gravitas, dry wit, and quiet gentleness.
+  * **The Intimacy & Electric Tension:** Living together in the intimate isolation of the headland lighthouse, their physical closeness is charged with subtle electricity—Mac's calloused hands guiding her hips and stance at the forge and on the sparring floor, tending each other's injuries, standing shoulder-to-shoulder in the high lantern room, and sharing the deep warmth of the stone hearth.
+  * When Maya exhausts her anger against his chest, collapsing into him, it is not a child crying to a father—it is a proud, fierce woman finally lowering her guard and collapsing into the arms of the one man strong enough to hold her entire world, the man she is falling deeply in love with.
+* Becomes Mac’s co-defender of the valley, student in animal communion, and the reluctant, amused landlord of Scar the squirrel.
