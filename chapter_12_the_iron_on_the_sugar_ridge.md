@@ -456,7 +456,7 @@ His face was an ancient mask of dark stone. The black dilation in his pupils was
 
 The sergeant looked up, swallow hard, his Adam’s apple bobbing in his throat.
 
-"Colonel Vance," the sergeant rasped, his teeth chattering uncontrollably from shock. "Amherst Armory Command. We... we have sixty-four people left in the barracks. The fuel tanks rotted in December. The canned stores are down to dry beans and spoiled flour. We had rumors... rumors from Sussex that there was an old fortress on this river. A man who couldn't be killed. A farm with corn and cattle."
+"Colonel Ross," the sergeant rasped, his teeth chattering uncontrollably from shock. "Amherst Armory Command. Vance died of the lung rot three weeks back—choked on his own blood. Ross took command of the regiment. We... we have sixty-four people left in the barracks. The fuel tanks rotted in December. The canned stores are down to dry beans and spoiled flour. We had rumors... rumors from Sussex that there was an old fortress on this river. A man who couldn't be killed. A farm with corn and cattle."
 
 "And your orders?" Maya asked, stepping up beside Mac, her white ash staff resting grounded in her right hand, her breathing steady and cold.
 
@@ -470,17 +470,17 @@ Inside was a 1:50,000 topographical grid of Westmorland and Cumberland counties,
 
 "Look at this, Mac," she said, her voice dropping into a razor-sharp tactical analysis. "They’ve marked the old high-water contour along the Tantramar marshes. They’ve surveyed the Canadian National rail bed from Sackville to Dorchester, and they’ve plotted four launch points for whaleboats at the mouth of the Missaguash River. They aren't scavengers. This is an operational assault plan for an eighteen-man amphibious landing."
 
-"How many operational troops does Vance have left?" Maya demanded, leveling the cold tip of her staff at Miller’s chest.
+"How many operational troops does Ross have left?" Maya demanded, leveling the cold tip of her staff at Miller’s chest.
 
 "Eighteen," Miller choked out, his hands trembling violently in the air. "Eighteen combat-ready infantry. The rest are support—mechanics with no parts, supply clerks, and twenty-four civilian dependents, mostly women and children. If we don't bring back food or secure agricultural land by the spring thaw, the barracks will be empty by June. Everyone will starve."
 
 "What happened to the Halifax command?" Mac asked, his pale blue eyes boring into the sergeant's skull.
 
-"Dead," Miller whispered, his voice cracking. "Six months ago, our long-range radio picked up the final broadcast from the naval dockyard. The fuel reserves burned in an accidental refinery fire. The winter gales scuttled the remaining frigates at their berths. The Atlantic fleet is gone, Mac. There is no government in Ottawa, there is no army in Halifax, and no relief convoy is ever sailing up the Bay of Fundy. We’re on our own. Colonel Vance realized that if we didn't take the fertile silt plains along the Petkotkweyak before the summer, our children would be eating boiled grass."
+"Dead," Miller whispered, his voice cracking. "Six months ago, our long-range radio picked up the final broadcast from the naval dockyard. The fuel reserves burned in an accidental refinery fire. The winter gales scuttled the remaining frigates at their berths. The Atlantic fleet is gone, Mac. There is no government in Ottawa, there is no army in Halifax, and no relief convoy is ever sailing up the Bay of Fundy. We’re on our own. Colonel Ross realized that if we didn't take the fertile silt plains along the Petkotkweyak before the summer, our children would be eating boiled grass."
 
 "And the whaleboats?" Maya pressed, her eyes narrowing. "Miller, how were you planning to cross five miles of Fundy tide?"
 
-"Pugwash," Miller confessed, his shoulders slumping in total defeat. "We hauled four twenty-foot wooden surf dories from the Northumberland Strait on flatbed trailers four years ago before the truck transmissions failed. We spent the winter carving ten-foot ash sweeps and pitching the seams. Vance planned to launch from the Missaguash River on the full moon spring tide in late April, riding the high ebb down through Cumberland Basin and catching the flood bore straight up the Petitcodiac channel into your cove."
+"Pugwash," Miller confessed, his shoulders slumping in total defeat. "We hauled four twenty-foot wooden surf dories from the Northumberland Strait on flatbed trailers four years ago before the truck transmissions failed. We spent the winter carving ten-foot ash sweeps and pitching the seams. Ross planned to launch from the Missaguash River on the full moon spring tide in late April, riding the high ebb down through Cumberland Basin and catching the flood bore straight up the Petitcodiac channel into your cove."
 
 Maya looked at Mac, her jaw tightening. "An amphibious assault riding the tidal bore. If they catch a forty-foot spring flood, four dories can cover twenty miles in two hours without burning an ounce of fuel."
 
@@ -580,7 +580,7 @@ He picked up the mug of warm syrup, took a slow, steaming sip, and handed it to 
 
 Maya looked at the captured Timberwolf rifles resting on the cedar chest. "We keep two of the sniper rifles in the lantern room. With that high-magnification glass and seven-point-six-two match ammo, a shooter sixty feet up behind four feet of dressed Mary’s Point granite can drop a dory sweep at eight hundred yards before the boat clears the river bend. The river bore gives them eight knots of speed, but they won't have a single helmsman left alive to steer the rudder."
 
-"And if they reach the mud flats," Mac added, his voice low and resolute, "we drop the rail ballista. We spike the shallows with forged railway iron. By the time Colonel Vance’s eighteen soldiers set foot on this shore, they will find that an army with rifles cannot conquer a people who belong to the stone."
+"And if they reach the mud flats," Mac added, his voice low and resolute, "we drop the rail ballista. We spike the shallows with forged railway iron. By the time Colonel Ross’s eighteen soldiers set foot on this shore, they will find that an army with rifles cannot conquer a people who belong to the stone."
 
 Maya took the mug in both hands. She leaned her shoulder against Mac’s massive, steady frame, feeling the heat radiating from his body like a granite ledge that had soaked in the sun all day.
 

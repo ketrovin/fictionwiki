@@ -46,15 +46,19 @@ Three miles south-southwest, near the highest contour of the Fort Folly ridge, a
 
 Maya watched the distant pinprick flare and die against the black timberline. Her mind moved through the cipher grid they had scratched into the lead plate on the chart table: 
 
-*V-A-N-C-E. S-T-I-R-R-I-N-G.*
+*V-A-N-C-E. D-E-A-D.*
 
-The light paused for five seconds, then began a rapid, rhythmic flutter:
+The light paused for three seconds, then continued:
+
+*R-O-S-S. I-N. C-O-M-M-A-N-D.*
+
+The light paused for another five seconds, then began a rapid, rhythmic flutter:
 
 *A-M-H-E-R-S-T. W-H-A-L-E-B-O-A-T-S. E-I-G-H-T. C-R-E-W-S. F-O-R-T-Y. P-I-N-T-L-E. B-R-O-W-N-I-N-G-S.*
 
-Maya’s jaw tightened. "Eight whaleboats. Forty men. Pintle-mounted Brownings. That matches what the scout on the sugar ridge spat out before his chest gave out."
+Maya’s jaw tightened. "Vance is dead. Colonel Ross took the armory. Eight whaleboats. Forty men. Pintle-mounted Brownings. That matches what the scout on the sugar ridge spat out before his chest gave out."
 
-"Forty conscripts and ten militia regulars to hold the gunwales," Mac corrected quietly. "Vance isn't sending his veterans to pull eight-foot ash oars through four knots of Petitcodiac mud. He’ll put six farm boys from Cumberland County on each thwart with an NCO in the stern sheet holding a service automatic to their ears. And the Brownings will be fifty-calibers stripped from the armory's half-tracks."
+"Forty conscripts and ten militia regulars to hold the gunwales," Mac corrected quietly. "Ross isn't sending his veterans to pull eight-foot ash oars through four knots of Petitcodiac mud. He’ll put six farm boys from Cumberland County on each thwart with an NCO in the stern sheet holding a service automatic to their ears. And the Brownings will be fifty-calibers stripped from the armory's half-tracks."
 
 "Can a fifty-caliber mount to a cedar whaleboat without ripping the gunwale out on the first burst?" Maya asked, watching the distant yellow light continue its staccato clatter across the bay.
 
@@ -126,7 +130,7 @@ Noel walked to the sled slowly, as if approaching a skittish horse. He knelt in 
 
 The 24-power Schmidt & Bender optic drew the morning light out of the grey sky, making the frosted branches three hundred yards away jump into razor-sharp relief. Noel worked the bolt. It slid back with the slick, mechanical *snick-click* of precision toolroom steel, cocking on the forward throw with zero play in the raceway.
 
-"Vance's personal guard carry these," Noel whispered, his breath clouding the cold air. "The sniper platoon from the Amherst armory. They had four of them when the trouble started in the winter of twenty-four. How did two of them end up on your ridge?"
+"The Amherst armory guard carry these," Noel whispered, his breath clouding the cold air. "The sniper platoon from Acadia Street. They had four of them when the trouble started in the winter of twenty-four. How did two of them end up on your ridge?"
 
 "A five-man patrol came up the ice gutter from the mouth of the Memramcook," Mac said, his tone flat, stripped of all boasting. "They had snowshoes and climbing irons. They thought the snow was deep enough to cover their noise. They were wrong."
 
@@ -134,11 +138,11 @@ Noel lowered the rifle, his dark eyes meeting Mac’s. "And the other three?"
 
 "Under the high drift behind the blacksmith shop," Mac replied. "The foxes will find what’s left of them when the sun gets over the hill in May."
 
-Noel let out a long, slow whistle through his teeth. "Vance is losing his temper, Mac. He’s got eighty men in the armory barracks on Acadia Street, but half of them are coughing their lungs into their blankets with the winter rot, and the other half are trading their ammunition to the townspeople for salt pork and dried apples. He needs a win before the ice goes out. If he can take your light, he controls the river from the mouth of the Petitcodiac all the way to the Moncton bend. He can tax every canoe, every scow, every net of gaspereau that comes down the water."
+Noel let out a long, slow whistle through his teeth. "You read Auntie's flash? Vance is dead, Mac. Died three days back—coughed his lungs out into a bloody blanket in the armory hospital, and that was the end of him. But Colonel Ross is the one running the garrison now. Ross is an old North Nova Scotia Highlander officer, and he’s twice as dangerous. He’s got eighty men in the barracks on Acadia Street. He cut the rations to half-rations of salt beef and dried apples, put armed NCOs on the gates, and he’s pushing the whaleboats day and night. He needs a win before the ice goes out. If Ross can take your light, he controls the river from the mouth of the Petitcodiac all the way to the Moncton bend. He can tax every canoe, every scow, every net of gaspereau that comes down the water."
 
 "He won't take the light," Maya said, her voice hard as the ash staff in her fist.
 
-Noel looked at her, his brows lifting slightly. "He’s got eight whaleboats, girl. Old wooden double-enders from the fisheries patrol down at Saint John, hauled up across the marsh on flatcars before the rails were torn up. He’s got fifty men assigned to the oars and three heavy guns mounted on the bows. When the spring tide breaks the ice in two weeks, he’s coming up on the flood with the water under his keels. You can’t stop eighty feet of oak and iron with an ash stick."
+Noel looked at her, his brows lifting slightly. "Ross has eight whaleboats, girl. Old wooden double-enders from the fisheries patrol down at Saint John, hauled up across the marsh on flatcars before the rails were torn up. He’s got fifty men assigned to the oars and three heavy guns mounted on the bows. When the spring tide breaks the ice in two weeks, he’s coming up on the flood with the water under his keels. You can’t stop eighty feet of oak and iron with an ash stick."
 
 "We aren't stopping them with a stick," Maya said, a cold, thin smile touching the corner of her lips. "We’re stopping them with the river."
 
@@ -221,7 +225,7 @@ Maya checked her stroke, letting the bellows settle on its leather stops. She re
 
 "That's forty-two," she said, her voice slightly husky from the coal smoke. "Forty-two spikes. At eighteen-inch centers, that covers sixty-three feet of stringer."
 
-"We need fifty," Mac said, reaching into the coal bin with an iron shovel to bank the rear of the firepot with fresh wet slack. "The narrow gut between the red shale spit and the low-water ledge is eighty feet across on the neap, but when the spring flood piles thirty feet of red mud into the channel, the water cuts deep into the outer eddy. Vance's steersmen won't try the shallows—they don't have the draft for forty feet of oar. They'll hug the deep gut along the shale bluff where the current runs fastest. That's where the boom has to bite."
+"We need fifty," Mac said, reaching into the coal bin with an iron shovel to bank the rear of the firepot with fresh wet slack. "The narrow gut between the red shale spit and the low-water ledge is eighty feet across on the neap, but when the spring flood piles thirty feet of red mud into the channel, the water cuts deep into the outer eddy. Ross's steersmen won't try the shallows—they don't have the draft for forty feet of oar. They'll hug the deep gut along the shale bluff where the current runs fastest. That's where the boom has to bite."
 
 He walked over to the open double doors of the skidway at the back of the smithy.
 
@@ -241,7 +245,7 @@ Maya picked up her staff, stepped through the smithy doors into the crisp, sub-z
 
 Maya leaned against the red spruce log, running her gloved fingers over the clean, yellow wood. It was hard as bone from the winter frost.
 
-"When Vance hits this," she murmured, "his lead boat is going to accordion like a tin can."
+"When Ross hits this," she murmured, "his lead boat is going to accordion like a tin can."
 
 "If he hits it in the dark," Mac said, "the first boat will ramp right over the spruce stringer. The stem will ride up on the log, the spikes will punch straight through the bottom boards between the second and third thwarts, and the momentum will tear the bottom out from stem to sternpost. The second boat will hit the wreckage before the steersman can throw his sweep over. In four knots of tide, with thirty feet of red water pushing behind them, forty men in heavy winter coats don't have three minutes before the bore rolls them under the ice shelf."
 
@@ -299,7 +303,7 @@ Mac stood there, carrying an armload of split sugar maple logs for the woodbox. 
 
 Maya took the mug, wrapping her cold hands around the hot stoneware. The steam smelled pungent, citrusy, and resinous. She took a slow sip, feeling the heat spread down her throat and settle into her chest.
 
-"I need to work the staff," Maya said, looking over at the white ash pole leaning against the stones. "My legs are getting soft, Mac. If Vance brings fifty men up that bluff, I can't just stand behind the parapet and throw rocks."
+"I need to work the staff," Maya said, looking over at the white ash pole leaning against the stones. "My legs are getting soft, Mac. If Ross brings fifty men up that bluff, I can't just stand behind the parapet and throw rocks."
 
 Mac pulled out the heavy bench across from her and sat down. His face was unreadable in the firelight—the dark, weathered mask of a man who had seen three generations of war and winter pass across the red river without leaving anything behind but bones and rusted iron.
 
@@ -392,7 +396,7 @@ Beside her, Scar finally decided that the warmth of the lantern room was too tem
 
 Maya smiled faintly, not looking away from her work. 
 
-"You see that, Scar?" she murmured, pressing another amber seed into the soil. "That’s life. Real life. Not Vance's militia marching in circles on the Amherst asphalt, waiting for someone to drop a can of beans off a truck. This grows out of the rock. You can't shoot a cornfield with a Timberwolf rifle; you can't starve a homestead that knows how to turn salt mud into bread."
+"You see that, Scar?" she murmured, pressing another amber seed into the soil. "That’s life. Real life. Not Ross's militia marching in circles on the Amherst asphalt, waiting for someone to drop a can of beans off a truck. This grows out of the rock. You can't shoot a cornfield with a Timberwolf rifle; you can't starve a homestead that knows how to turn salt mud into bread."
 
 She looked up, gazing out through the great curved panes of the lantern room.
 
@@ -408,11 +412,11 @@ It was vast, wild, and utterly unforgiving. A human being caught out on those mu
 
 "Aye?"
 
-"Vance doesn't understand this river, does he?"
+"Ross doesn't understand this river, does he?"
 
 Mac leveled the soil in the second flat with a notched pine lath, his broad face shadowed against the glare of the glass. 
 
-"He understands the highway," Mac said. "He understands the four-lane asphalt of Route Two, the rail yards at Sackville, and the concrete barracks of the armory. Men like Vance think land is something you draw a red line across on an ordnance survey map. They think if you have eighty men with rifles and three machine guns, you own the ground you stand on."
+"He understands the highway," Mac said. "He understands the four-lane asphalt of Route Two, the rail yards at Sackville, and the concrete barracks of the armory. Men like Ross think land is something you draw a red line across on an ordnance survey map. They think if you have eighty men with rifles and three machine guns, you own the ground you stand on."
 
 He set the lath down, looked out across the bay toward the southern horizon, and spat into the iron gutter beneath the sill.
 
@@ -436,7 +440,7 @@ Maya stood on the stone stoop of the kitchen, her ash staff planted in the packe
 
 "How far north are you going?" she asked.
 
-"To the high red cut above the narrow gut," Mac replied, not looking up as his fingers knotted the wet babiche with quick, greasy hitches. "The thaw is starting along the southern ledges. The snow is pulling back from the rock face, and the goat path between the upper cliff and the mud shelf is thawing out. If Vance sends another three-man reconnaissance patrol on foot before the boats move, that's the only path they can use without snowshoes."
+"To the high red cut above the narrow gut," Mac replied, not looking up as his fingers knotted the wet babiche with quick, greasy hitches. "The thaw is starting along the southern ledges. The snow is pulling back from the rock face, and the goat path between the upper cliff and the mud shelf is thawing out. If Ross sends another three-man reconnaissance patrol on foot before the boats move, that's the only path they can use without snowshoes."
 
 "Set the birch triggers?" Maya asked.
 
@@ -566,7 +570,7 @@ Maya stood at the iron railing, her hands clamped to her ash staff, the warm rai
 
 He pointed with his heavy arm down toward the narrow gut at the base of their bluff, where the sixty-foot red spruce stringers of their boom lay waiting on the skids, ready to be dropped into the current.
 
-"When the water clears, Vance will look at the river from the Amherst heights," Mac said, his voice cutting through the roar of the tide. "He’ll see open water. He’ll think the river is his road."
+"When the water clears, Ross will look at the river from the Amherst heights," Mac said, his voice cutting through the roar of the tide. "He’ll see open water. He’ll think the river is his road."
 
 Maya leaned on her staff, feeling the solid, unyielding iron beneath her boots, feeling the tiny, terrified heartbeat of Scar thrumming against her breast, feeling the knitted bone of her ribs holding firm against the wind.
 
