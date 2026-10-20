@@ -12,8 +12,8 @@
   * There are no bulging muscles, no theatrical energy auras, no grunting wind-ups. Whether lifting a 12-lb bag of meal, an 800-lb granite hearthstone, or wedging a runaway spruce log against a rushing tidal bore, his body answers his will with calm, effortless poise.
   * It is entirely inborn and **cannot be taught** to anyone else. To observers, it looks strangely casual—as if gravity simply forgot to pull down on whatever Mac is holding.
 * **The Quiet Lethality (How Dangerous Mac Is):**
-  * When pushed or defending his home, animals, or family, Mac is terrifyingly, lethally dangerous.
-  * He has no bloodlust or bravado; his lethality is cold, sovereign, and inevitable like a spring tide. He can catch a swinging axe by the blade, snap forged iron crowbars like brittle twigs, and neutralize multiple armed hostiles without breaking a sweat or raising his voice.
+  * **Core Ethos:** Mac prefers peace. He wants to garden, boil sap, read Johnson and Pratchett, forge iron, feed his animals, and watch the tide. He avoids violence wherever possible because violence is a waste of energy, life, and the land's harmony.
+  * **The Inevitable End:** *If you push him, he'll kill you.* No hesitation, no posturing, no theatrical movie one-liners, and no half-measures. When pushed past the line—when someone threatens Maya, his hearth, or violates the sovereign sanctuary of the headland—he ends them with cold, terrifying finality. He can catch a swinging axe by the blade, snap forged iron crowbars like brittle twigs, and neutralize armed hostiles without breaking a sweat or raising his voice.
   * Combined with an intelligence network of every bird, wolf, and beast within ten miles, ambushing him is impossible.
 * **Animal Communion (Teachable):**
   * True mutual comprehension. Mac speaks in voice, posture, and intent, and animals understand him completely. Conversely, he hears and comprehends their thoughts, instincts, territorial disputes, and perspectives.
@@ -57,7 +57,7 @@ Mac has spent ten patient years establishing this sanctuary on the high ridge ov
 ```
 
 ### A. The Two-Room Cabin (Spring to Autumn Base)
-* **Construction:** Low-profile, hand-hewn hemlock frame clad in split cedar shakes weathered to coastal drift-gray. Sits nestled into the leeward bank of black spruce.
+* **Construction:** Low-profile, hand-hewn sugar-maple and red spruce frame clad in split cedar shakes weathered to coastal drift-gray. Sits nestled into the leeward bank of black spruce.
 * **Room 1 (The Common Room & Hearth):** Massive fieldstone fireplace backed by a two-ton dry clay-and-river-stone thermal battery. Holds heat for days. Workbench, hanging dried herbs, salt-pork racks, hand tools on pegs, and deep cedar shelving.
 * **Room 2 (Sleeping Quarters & Pantry):** Insulated with wild sheep's wool and cattail down. Double bunk frames, secondary recovery cot, airtight zinc grain and flour casks, tool chests, seed stores.
 * **Stealth Chimney Baffle:** Flue directs smoke down through an underground stone-and-gravel trench, cooling and filtering soot so the exhaust disperses at tree-canopy level as thin, odorless coastal mist.
