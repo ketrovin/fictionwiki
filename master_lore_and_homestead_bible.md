@@ -11,6 +11,11 @@
   * Mac is as strong as he *wants* or *needs* to be in any given moment.
   * There are no bulging muscles, no theatrical energy auras, no grunting wind-ups. Whether lifting a 12-lb bag of meal, an 800-lb granite hearthstone, or wedging a runaway spruce log against a rushing tidal bore, his body answers his will with calm, effortless poise.
   * It is entirely inborn and **cannot be taught** to anyone else. To observers, it looks strangely casual—as if gravity simply forgot to pull down on whatever Mac is holding.
+* **Situational Invulnerability (Bulletproof by Will):**
+  * Mac is **completely bulletproof** if he wants to be.
+  * That desire and density take effect instantaneously—as quickly as the sound of a gunshot reaches his ears.
+  * Jacketed rifle rounds, heavy ballistics, buckshot, and shrapnel simply flatten, shatter, or deflect off his skin and clothing like hail hitting Mary's Point granite, dropping spent into the mud.
+  * There are no glowing energy shields, visual auras, or metallic skin effects; he remains a normal-sized, weathered woodsman in a wool shirt and moose-hide vest whose flesh and covenant with the earth simply refuse ballistic entry.
 * **The Quiet Lethality (How Dangerous Mac Is):**
   * **Core Ethos:** Mac prefers peace. He wants to garden, boil sap, read Johnson and Pratchett, forge iron, feed his animals, and watch the tide. He avoids violence wherever possible because violence is a waste of energy, life, and the land's harmony.
   * **The Inevitable End:** *If you push him, he'll kill you.* No hesitation, no posturing, no theatrical movie one-liners, and no half-measures. When pushed past the line—when someone threatens Maya, his hearth, or violates the sovereign sanctuary of the headland—he ends them with cold, terrifying finality. He can catch a swinging axe by the blade, snap forged iron crowbars like brittle twigs, and neutralize armed hostiles without breaking a sweat or raising his voice.
