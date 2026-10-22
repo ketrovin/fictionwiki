@@ -493,7 +493,7 @@ A slow, faint, wonderfully shy smile touched the corners of Mac's mouth in the d
 
 A muffled, breathless snort of laughter broke from Maya’s ribs. She shook her head against his shoulder, her cheeks burning with heat, and tucked her face back into the warm hollow of his neck, her fingers curling into the dark hair at the nape of his neck.
 
-The laugh was genuine, rich, and carried the weight of a profound revelation. In Sussex, any hint of male desire was a calculated threat—something to be fought off, feared, or traded against survival. But here, lying completely naked against a man who could tear an iron railway tie in half with his bare hands, Maya felt neither fear nor defensiveness. She could laugh out loud at his biology because she knew, with absolute, unshakeable certainty, that Mac would never cross that threshold unless invited. He would never touch or take without being asked; his restraint and reverence for her sovereignty were as solid as the Mary's Point stone around them. 
+She didn't pull back. She didn't flinch or stiffen her guard. Instead, her spine went slack, her ribs softening flush against his flank as she let out a long, shuddering sigh of relief, slumping her full weight against his side and hooking her bare knee over his thigh.
 
 "You're terrible," she whispered softly into his collarbone.
 
