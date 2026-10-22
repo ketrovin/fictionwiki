@@ -485,15 +485,27 @@ Mac didn't even open his eyes. His weathered face remained smooth as planed ash,
 
 "I already apologized in advance, Maya. Ignore it, please."
 
-"Mac, it's kind of hard to ignore!" she sputtered in an outraged whisper, a fresh rush of heat rising straight up her throat into her ears. "It’s literally nudging my hip bone like a spruce fence post!"
+"That's very hard to ignore!" she sputtered in an outraged whisper, a fresh rush of heat rising straight up her throat into her ears. "It’s literally nudging my hip bone like a spruce fence post!"
 
-"Don't look at it, don't negotiate with it, and think about cold salt mud," Mac instructed calmly, his chest vibrating beneath her chin. "That's what I'm doing. It’s an involuntary mechanical reaction to holding a stunning woman who happens to be completely unclad. It has no authority here. Treat it like bad weather."
+A faint, slow, wonderfully shy smile touched the corners of Mac's mouth in the dark.
 
-A muffled, breathless snort of laughter broke from Maya’s ribs. She shook her head, burying her hot face back into the crook of his neck, her fingers curling into his hair.
+"Thank you," he murmured mildly.
 
-"You are the absolute worst," she laughed softly against his collarbone.
+Maya froze, her jaw dropping, before a fresh, hot wave of color rushed straight into her cheeks. A muffled, breathless snort of laughter broke from her ribs.
 
-"I'm a warm furnace, Maya," Mac whispered back, a faint smile touching his mouth in the dark. "Take the heat, stop kicking my shins, and close your eyes. The storm is outside."
+"That was not a compliment, Mac!" she hissed against his collarbone, shaking with helpless laughter.
+
+"I took it as one," Mac rumbled mildly, his heavy hand resting calm and steady on the small of her back. "A man takes what the river gives. But seriously—don't look at it, don't negotiate with it, and think about cold salt mud. That’s what I'm doing. It’s an involuntary mechanical reaction to holding a stunning woman who happens to be completely unclad. It has no authority here. Treat it like bad weather."
+
+Maya's laughter softened in the dark, her heart giving a strange, sweet flutter at the unvarnished honesty in his voice. She buried her hot cheek into the crook of his neck, her fingers relaxing against his shoulder, and with a shy, quiet smile against his skin, she whispered:
+
+"Thank you."
+
+Mac's chest rumbled. "For what?"
+
+"For the furnace," she murmured softly, her breath warm against his pulse. "And for calling me stunning."
+
+"Just stating surveyor's facts, Maya," Mac whispered into her hair, his arm tightening gently around her waist. "Take the heat, stop kicking my shins, and close your eyes. The storm is outside."
 
 Maya closed her eyes.
 
