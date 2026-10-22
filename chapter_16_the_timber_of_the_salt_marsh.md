@@ -411,13 +411,13 @@ The flannel dropped to the floorboards at her ankles with a soft whisper.
 
 She stood before him completely naked, her dark hair tumbling damp and wild around her shoulders, her dark eyes looking straight up into his weathered grey gaze with a raw, breathtaking vulnerability that needed no words. There was no pretense between them, no armor, no lingering hesitation.
 
-"Mac," she whispered, her voice trembling with the cold, but steady in its intent. "I can't get warm by myself. Will you... will you just hold me in bed? Just hold me warm?"
+"Mac," she whispered, her voice trembling with the cold, but steady in its intent. "The stove is only warming the surface of my skin. My ribs feel like frozen shale, and my core is shivering. Can I... can I have your body heat? Just get under the quilts with me and hold me? Pure warmth, no funny business—I just need to stop vibrating before my heart quits."
 
 Mac looked down at her. 
 
-His eyes took in the pale, shivering curve of her throat, the gooseflesh rippling across her athletic ribs, the dark, beautiful fire in her eyes, and the absolute, fearless trust that lived in her posture. He saw the woman who had held the redoubt with him, who had calculated the arches of the stone light, who had pulled forty pounds of iron across the frost, now offering him the full sanctuary of her heart.
+His eyes took in the pale, shivering curve of her throat, the gooseflesh rippling across her athletic ribs, the dark, beautiful fire in her eyes, and the absolute, fearless trust that lived in her posture. He saw the woman who had held the redoubt with him, who had calculated the arches of the stone light, who had pulled forty pounds of iron across the frost, now offering him the full sanctuary of her vulnerability.
 
-A faint, slow, wonderfully dry woodsman’s smile creased the corners of his mouth. 
+A faint, slow, wonderfully dry woodsman’s smirk creased the corners of his mouth. 
 
 His head tilted slightly to the side, his grey eyes gleaming with that warm, deadpan Maritime wit that had kept him sane through ten years of solitude, and in that low, rumbling baritone that belonged to the red river, he delivered his verdict:
 
@@ -425,13 +425,19 @@ His head tilted slightly to the side, his grey eyes gleaming with that warm, dea
 
 Maya froze. 
 
-Her lips parted. For one half-second, her frozen brain tried to process the sentence, parsing the dry, double-edged, wickedly self-aware irony of an ageless titan lying down with a naked, beautiful woman. He was warning her of his nature, mocking his own restraint, and honoring her sovereignty all in a single breath.
+Her lips parted. For two full seconds, her frozen brain tried to process the sentence, parsing the dry, polite, wickedly self-aware irony of an able-bodied man taking a naked, gorgeous woman into his bed for body heat.
 
-Then the meaning hit her.
+Then her eyes widened as the realization hit her square in the chest.
 
-A sudden, helpless, breathless burst of laughter broke out of her chest—a laugh so genuine and warm that it shattered the last lingering thread of the cold.
+"Wait..." she stammered, blinking through her shivering. "Are you... are you apologizing in advance for a boner?"
 
-"You arrogant old bastard," Maya sputtered, laughing through her chattering teeth, shaking her head as a rich, hot flush rose into her cheeks. "You absolute philosopher. Just get under the damn blankets and warm my feet before my toes snap off!"
+Mac gave a slow, polite, deadpan shrug, unbothered as a granite cliff facing the tide.
+
+"A man's physiology has its own opinions when twenty-four years of lean muscle presses flush against his ribs, Maya," Mac rumbled mildly, not a trace of shame or lewdness in his tone, only the practical, teasing candor of the woods. "If biology takes its natural course, it's impolite to a woman seeking sanctuary. But if it doesn't stir at all, you'll spend half the night staring at the rafters wondering if you've lost your charm. There's no winning there, you know. An apology covers both flanks."
+
+Maya stared at him, and then a sudden, helpless, breathless burst of laughter broke out of her chest—a laugh so genuine, loud, and warm that it shattered the last lingering thread of hypothermic tension in the room.
+
+"You arrogant old bastard!" Maya sputtered, laughing through her chattering teeth, shaking her head as a rich, hot flush rose up her neck into her cheeks. "There is literally a sixty-knot nor'easter rattling the lantern room off its mounts, my toes feel like frozen salt pork, and you're standing there politely handicapping a hard-on! 'There's no winning there, you know.' You absolute philosopher. Just get under the damn blankets and hand over that furnace heat before my toes snap off!"
 
 Mac let out a low, rumbling chuckle that vibrated deep in his chest.
 
@@ -477,7 +483,9 @@ Beneath the heavy weight of the quilts, the world shrank to the size of the ceda
 
 Outside, sixty feet above the cliffs, the nor'easter shrieked against the stone tower, hurling tons of ocean spray against the glass, but inside the bed, the cold was dying. 
 
-With every second that passed, Mac’s radiant heat seeped into her skin, soaking through her chilled flesh, reaching down through the muscle of her chest into her fourth rib, untying the agonizing knot of tension in her spine, chasing the blue frost out of her toes, her fingers, her lungs. She felt the heavy, rhythmic rise and fall of his chest beneath her cheek, grounding her, anchoring her in a reality that no storm could touch. For months she had slept with her hand on her knife, listening for boots on the gravel, waking at every shift of the wind. Now, held in the iron shelter of his arms, the last remnants of that defensive animal panic dissolved like salt in warm water.
+It was completely, beautifully non-sexual—there was no groping, no opportunistic pressure, no intrusion upon her space. It was the purest form of human sanctuary: two survivors sharing caloric warmth in the teeth of an Atlantic tempest. With every second that passed, Mac’s radiant heat seeped into her skin, soaking through her chilled flesh, reaching down through the muscle of her chest into her fourth rib, untying the agonizing knot of tension in her spine, chasing the blue frost out of her toes, her fingers, her lungs. 
+
+She felt the heavy, rhythmic rise and fall of his chest beneath her cheek, grounding her, anchoring her in a reality that no storm could touch. For months she had slept with her hand on her knife, listening for boots on the gravel, waking at every shift of the wind. Now, held in the iron shelter of his arms, the last remnants of that defensive animal panic dissolved like salt in warm water.
 
 A small rustling sound came from the foot of the bed.
 
@@ -491,7 +499,7 @@ Maya felt the tiny weight of the squirrel resting against her neck; she felt the
 
 A single tear—hot, clear, and sweet—slipped from the corner of her eye, soaking into the hair of Mac’s chest.
 
-She didn't speak. She tightened her arms around his back, hooked her knee over his thigh, and surrendered completely to the warm, sovereign dark. 
+She didn't speak. She tightened her arms around his back, hooked her knee over his thigh, and surrendered completely to the warm, sovereign dark.
 
 ### VII. The Whisper in the Dark and the Atlantic Gale
 
@@ -537,7 +545,7 @@ Maya looked at him, her throat tightening with a sudden, overwhelming wave of em
 
 Mac’s arm tightened around her waist, pulling her closer, lifting her until her breasts were pressed flat against his sternum, his forehead resting gently against hers.
 
-"You ran toward the river, Maya," Mac whispered against her lips. "And the river brought you home."
+"You ran toward the river, Maya," Mac whispered against her hair. "And the river brought you home."
 
 "Home," she breathed, the word tasting strange and sweet in her mouth. "I haven't had a home since I was twelve years old."
 
@@ -553,39 +561,21 @@ Mac paused, his breath warm against her temple.
 
 "Mntu is the spirit in all things," he said quietly. "It's in the red sandstone beneath this bed. It's in the salt water roaring against the cliff. It's the ancient life that binds the moss to the rock and the breath in your lungs. When I breathe through my nose and plant my feet, I don't conquer the stone, Maya. I become part of it. The earth lends me its weight because it knows I belong to it. When you struck me today, you weren't hitting my muscle; you were striking the bedrock of the Petkotkweyak. That's why your anger couldn't break me. The earth can carry all the grief you have, Maya, and never flinch."
 
-Maya looked at him, her heart beating fast against his ribs.
+Maya looked at him, her heart beating with a deep, quiet reverence that filled her chest.
 
-"I’m in love with you, Mac," she breathed into the warm dark between them.
+"I don't think I've ever trusted anyone in my life, Mac," she whispered, her fingers resting gently over his heart. "Not like this."
 
-The words didn't come out as a plea; they didn't come out as a tentative question. They came out with the fierce, absolute, unyielding certainty of the white ash staff striking bedrock—a sovereign truth spoken in the teeth of an Atlantic gale.
+Mac closed his eyes for a heartbeat, a deep, shuddering breath passing through his massive frame. When he opened them, his grey eyes were shining with that quiet, protective light that had held the bluff against the winter.
 
-Mac closed his eyes for a heartbeat, a deep, shuddering breath passing through his massive frame.
+"You don't have to carry your guard in this bed, Maya," Mac murmured, his hand sliding up to cradle the back of her head, his calloused thumb gently wiping away the trace of her tear. "You're sovereign here. Rest your bones."
 
-When he opened them, the pale grey was luminous—not with the freezing azure fire of combat, but with an ancient, bottomless tenderness that seemed to reach across centuries of loneliness.
+He leaned down and pressed a slow, tender kiss against the crown of her head, his lips lingering against her dark hair, smelling of clean rain and sweet cedar smoke.
 
-"I loved you the day you walked into the smithy on that ash crutch," Mac said, his voice husky, his hand sliding up to cradle the back of her head, his fingers tangling in the thick silk of her dark hair. "I saw a woman whose bones were broken, but whose spirit was hard as Mary's Point stone. You gave this tower its soul, Maya. You’re the hearth, the light, and the ground beneath my feet."
+It was not a hurried demand; it was the quiet, unbreakable covenant of two partners who had weathered the worst of the world and were choosing, day by day, to build a future together. 
 
-He leaned down and kissed her.
+Between their chests, curled into the hollow of Maya’s throat, Scar let out a tiny, drowsy *churr* of supreme comfort, shifted his bushy tail over Maya's bare shoulder, tucked his black nose deeper into Mac’s collarbone, and went right back to sleep.
 
-The kiss was slow, deep, and sweet as wild clover honey leached from a cedar bee-tree. 
-
-It was not the desperate, frantic hunger of two frightened animals clinging together in the ruins of a dead world; it was the deliberate, sacred covenant of two sovereign equals claiming each other on their own ground. 
-
-His lips were warm, firm, and tasted of clean spring rain and cedar smoke. Maya’s lips parted beneath his, a soft, breathless sigh escaping her throat, her arms winding tight around his thick neck, pulling his weight down against her body. 
-
-Every inch of her bare skin was singing with heat—a wild, electric fire that had nothing to do with the stove and everything to do with the man holding her. 
-
-Between their chests, curled into the hollow of Maya’s throat, Scar let out a tiny, drowsy *churr* of mild irritation at being squeezed, shifted his bushy tail three inches to the left, tucked his black nose deeper into Mac’s collarbone, and went right back to sleep.
-
-Maya broke the kiss with a soft, breathless laugh, her forehead resting against Mac’s, her breath mingling with his in the warm flannel shadows.
-
-"I told you," she whispered, her fingers stroking the nape of his neck, her dark eyes shining with fierce, triumphant light. "You're an absolute philosopher."
-
-Mac’s chest rumbled with quiet laughter. He pulled the heavy patchwork quilts higher over their shoulders, tucking the edges beneath her hips, wrapping his broad body around hers like a living rampart of bone and granite.
-
-"Go to sleep, my girl," Mac murmured, his lips pressing a soft, lingering kiss against the hollow beneath her ear. "The storm is blowing itself out. Tomorrow we have sixty feet of tamarack to drop into the salt mud."
-
-Maya smiled in the dark, closed her eyes, and let the steady, unbreakable cadence of his heart carry her into the deepest, safest sleep of her life. 
+Maya smiled in the dark, her cheek resting over the steady, unbreakable cadence of Mac's heart. Wrapped in his furnace warmth, sheltered by four feet of ancient sandstone while the nor'easter howled harmlessly against the cliffs, she let go of the last remnants of her fear and fell into the deepest, safest sleep of her life.
 
 ### VIII. The Sluice in the Salt Mud and the Sovereign Marsh
 
