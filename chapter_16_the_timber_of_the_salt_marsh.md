@@ -491,11 +491,13 @@ A slow, faint, wonderfully shy smile touched the corners of Mac's mouth in the d
 
 "Thank you," he murmured.
 
-A muffled, breathless snort of laughter broke from Maya’s ribs. She shook her head against his shoulder, her cheeks burning with heat, and tucked her face back into the warm hollow of his neck, her fingers curling into his hair.
+A muffled, breathless snort of laughter broke from Maya’s ribs. She shook her head against his shoulder, her cheeks burning with heat, and tucked her face back into the warm hollow of his neck, her fingers curling into the dark hair at the nape of his neck.
 
-"You're terrible," she whispered.
+The laugh was genuine, rich, and carried the weight of a profound revelation. In Sussex, any hint of male desire was a calculated threat—something to be fought off, feared, or traded against survival. But here, lying completely naked against a man who could tear an iron railway tie in half with his bare hands, Maya felt neither fear nor defensiveness. She could laugh out loud at his biology because she knew, with absolute, unshakeable certainty, that Mac would never cross that threshold unless invited. He would never touch or take without being asked; his restraint and reverence for her sovereignty were as solid as the Mary's Point stone around them. 
 
-"I'm a warm furnace, Maya," Mac whispered back softly, his arm tightening around her waist. "Take the heat, stop kicking my shins, and close your eyes. The storm is outside."
+"You're terrible," she whispered softly into his collarbone.
+
+"I'm a warm furnace, Maya," Mac whispered back, his deep voice carrying a quiet smile in the dark as his arm tightened securely around her waist. "Take the heat, stop kicking my shins, and close your eyes. The storm is outside."
 
 Maya closed her eyes.
 
@@ -503,7 +505,7 @@ Beneath the heavy weight of the quilts, the world shrank to the size of the ceda
 
 Outside, sixty feet above the cliffs, the nor'easter shrieked against the stone tower, hurling tons of ocean spray against the glass, but inside the bed, the cold was dying. 
 
-It was completely, beautifully non-sexual—there was no groping, no opportunistic pressure, no intrusion upon her space. It was the purest form of human sanctuary: two survivors sharing caloric warmth in the teeth of an Atlantic tempest. With every second that passed, Mac’s radiant heat seeped into her skin, soaking through her chilled flesh, reaching down through the muscle of her chest into her fourth rib, untying the agonizing knot of tension in her spine, chasing the blue frost out of her toes, her fingers, her lungs. 
+It was completely, beautifully non-sexual—there was no groping, no opportunistic pressure, no intrusion upon her space. It was the purest form of human sanctuary: two sovereign equals sharing caloric warmth in the teeth of an Atlantic tempest. With every second that passed, Mac’s radiant heat seeped into her skin, soaking through her chilled flesh, reaching down through the muscle of her chest into her fourth rib, untying the agonizing knot of tension in her spine, chasing the blue frost out of her toes, her fingers, her lungs. 
 
 She felt the heavy, rhythmic rise and fall of his chest beneath her cheek, grounding her, anchoring her in a reality that no storm could touch. For months she had slept with her hand on her knife, listening for boots on the gravel, waking at every shift of the wind. Now, held in the iron shelter of his arms, the last remnants of that defensive animal panic dissolved like salt in warm water.
 
