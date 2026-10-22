@@ -487,13 +487,27 @@ It was completely, beautifully non-sexual—there was no groping, no opportunist
 
 She felt the heavy, rhythmic rise and fall of his chest beneath her cheek, grounding her, anchoring her in a reality that no storm could touch. For months she had slept with her hand on her knife, listening for boots on the gravel, waking at every shift of the wind. Now, held in the iron shelter of his arms, the last remnants of that defensive animal panic dissolved like salt in warm water.
 
-A small rustling sound came from the foot of the bed.
+A small rustling sound came from the pine floorboards beside the bed.
 
-A wet black nose poked out from beneath the edge of the top quilt, followed by two bright, unblinking black eyes and eight ounces of dry, fluffy russet fur. 
+A wet black nose poked out from beneath the edge of the hanging quilt, followed by two bright, unblinking black eyes and eight ounces of dry, fluffy russet fur. 
 
-Scar had decided that the warming shelf on the stove was vastly inferior to the cedar bedstead. 
+Scar had decided that the warming shelf on the stove, despite the cracked walnuts, was vastly inferior to the company in the cedar bedstead. 
 
-The squirrel hopped boldly over Mac’s blanketed hip, scrambled across the flannel sheet, and burrowed directly into the dark, heated pocket between Maya’s throat and Mac’s collarbone. He turned around three times, flattened his bushy red tail over Maya’s bare shoulder, tucked his front paws beneath his chin, let out a tiny, high-pitched *chirr* of supreme, territorial satisfaction, and closed his eyes.
+The squirrel hopped onto the hewn cedar siderail, sat upright on his haunches, flicked his bushy tail twice, and let out a sharp, indignant, rapid-fire burst of chittering—*tch-tch-tch-CHRRR-chatter-tch!*—scolding them soundly for shutting him out of the primary fleece nest, gesturing with his front paws toward the gap between their shoulders as if laying out a formal treaty grievance.
+
+Mac glanced down over his collarbone at the squirrel, his weathered face deadpan, his tone completely calm and conversational, as if he had just understood every syllable of a spoken request.
+
+"Sure, buddy," Mac murmured mildly, lifting the heavy corner of the patchwork quilt two inches with his thumb. "Come on."
+
+Scar didn't need a second invitation. 
+
+With one agile, spring-loaded leap, the squirrel cleared Mac’s blanketed hip, scrambled across the flannel sheet, and burrowed directly into the dark, heated pocket between Maya’s throat and Mac’s collarbone. He turned around three times to establish his borders, flattened his bushy red tail across Maya’s bare shoulder like a fur collar, tucked his front paws beneath his chin, let out a tiny, high-pitched *chirr* of supreme, territorial satisfaction, and closed his eyes.
+
+A soft, muffled snort of laughter broke from Maya’s lips against Mac’s chest.
+
+"You speak fluent squirrel now?" she whispered drowsily into his skin.
+
+"Red squirrels don't waste breath," Mac rumbled beneath her cheek, his heavy hand resting warm and steady on the small of her back. "They say what they mean and they want their blankets. Sensible creatures." 
 
 Maya felt the tiny weight of the squirrel resting against her neck; she felt the massive, steady weight of Mac’s arm holding her against his heart; she felt the deep, slow, sixty-beat-per-minute thrum of the titan’s pulse vibrating through her cheek.
 
