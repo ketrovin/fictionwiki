@@ -475,7 +475,25 @@ Then his right arm came over her.
 
 His hand—broad, calloused, and heavy as a cedar beam—spread flat across the small of her back, pressing her hips firmly against his flank, lifting her slightly so that her breasts were flattened against the dense, muscular wall of his chest, tucking the crown of her damp head snugly beneath the angle of his jaw.
 
-"Breathe, Maya," Mac whispered into her hair. "Just breathe. The storm is outside."
+As their hips settled together on the wool-filled mattress, Maya's bare thigh brushed against something unmistakable—a very firm, unapologetic, rigid biological reality pressing right against the curve of her hip through his linen trousers.
+
+Maya stiffened, her head jerking back an inch, her dark eyes flashing open in the gloom.
+
+"Hey!"
+
+Mac didn't even open his eyes. His weathered face remained smooth as planed ash, his deep baritone rumbling out into the quiet shadows with the dry, unflappable dignity of a judge reading a deed.
+
+"I already apologized in advance, Maya. Ignore it, please."
+
+"Mac, it's kind of hard to ignore!" she sputtered in an outraged whisper, a fresh rush of heat rising straight up her throat into her ears. "It’s literally nudging my hip bone like a spruce fence post!"
+
+"Don't look at it, don't negotiate with it, and think about cold salt mud," Mac instructed calmly, his chest vibrating beneath her chin. "That's what I'm doing. It’s an involuntary mechanical reaction to holding a stunning woman who happens to be completely unclad. It has no authority here. Treat it like bad weather."
+
+A muffled, breathless snort of laughter broke from Maya’s ribs. She shook her head, burying her hot face back into the crook of his neck, her fingers curling into his hair.
+
+"You are the absolute worst," she laughed softly against his collarbone.
+
+"I'm a warm furnace, Maya," Mac whispered back, a faint smile touching his mouth in the dark. "Take the heat, stop kicking my shins, and close your eyes. The storm is outside."
 
 Maya closed her eyes.
 
