@@ -373,7 +373,7 @@ The heat of the stove hit her front like a physical wave, but her back and thigh
 
 In the flickering amber glow, her body was a testament to survival. 
 
-She was not a frail, fragile girl; she was an athlete—twenty-four years old, long-limbed and lean, with the broad, sculpted shoulders of a track runner and the strong, muscular curve of thighs that had carried sixty pounds of iron across forty miles of abandoned railway ties. Her breasts—the "calcium cannons" she had joked about to hide her terror—were full, firm, and pale in the firelight, their crowns tightened into hard, rose-dark buds by the cold draft. Across her left fourth rib, the thickened, four-inch ridge of bone callus stood out pale against her skin—the permanent, healed scar where the militia rifle butt had struck her down in the snow.
+She was not a frail, fragile girl; she was an athlete—twenty-four years old, long-limbed and lean, with the broad, sculpted shoulders of a track runner and the strong, muscular curve of thighs that had carried sixty pounds of iron across forty miles of abandoned railway ties. Her breasts—the heavy burden she had joked about to hide her terror—were full, firm, and pale in the firelight, their crowns tightened into hard, rose-dark buds by the cold draft. Across her left fourth rib, the thickened, four-inch ridge of bone callus stood out pale against her skin—the permanent, healed scar where the militia rifle butt had struck her down in the snow.
 
 Mac stood three paces away by the washing bench, his back half-turned, drying his own neck and forearms with a wool cloth.
 

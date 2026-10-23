@@ -16,7 +16,7 @@ Along the perimeter of the curved outer wall, Mac had cut shallow condensation g
 
 Maya had climbed the seventy-two winding steps of the granite spiral stair at dawn, her right hand gripping her white ash staff, feeling the sharp thermal graduation of the tower. At the base, where four feet of Mary’s Point dressed sandstone met the bedrock, the air was a cool, unmoving thirty-eight degrees—the ideal cellar temperature for keeping forty-two Hubbard squashes, twenty bushels of carrots, and sixteen hundred pounds of flint corn dormant and mold-free. At the thirty-foot level, where the living snug surrounded the cylinder stove, the cedar paneling radiated a steady seventy degrees. And up here, in the glass lantern, the transition was dramatic: thirty-two degrees before sunrise, jumping forty degrees the instant the red disk of the sun broke the horizon over the Tantramar ridges.
 
-She had spent the first twenty minutes of the morning leaning against the south astragal with a brass compass and her field notebook, plotting the sun’s azimuth. At winter solstice, the solar elevation had crested at a meager twenty-two degrees above the southern tree line, throwing long, cold shadows across the river ice. But today, thirty-five days past the turn, the arc had climbed past twenty-seven degrees. The sun was lingering an extra hour and twelve minutes each afternoon, pouring eighty thousand British Thermal Units of pure, unpolluted solar energy into the glass dome before dipping behind the western hemlocks.
+She had spent the first twenty minutes of the morning leaning against the south astragal with a brass compass and her field notebook, plotting the sun’s azimuth. At winter solstice, the solar elevation had crested at a meager twenty-two degrees above the southern tree line, throwing long, cold shadows across the river ice. But today, thirty-five days past the turn, the arc had climbed past twenty-seven degrees. The sun was lingering an extra hour and twelve minutes each afternoon, pouring eighty thousand British Thermal Units of pure, unpolluted solar energy into the glass dome before dipping behind the western red spruces.
 
 "Thermal inversion complete," Maya said, resting her calloused hands against the cedar frame of a four-foot potting flat.
 
@@ -28,15 +28,15 @@ Beneath the hem of her open flannel shirt, nestled snugly inside the woolen cup 
 
 The little red squirrel poked his whiskered snout over the fabric, blinked at the blinding cascade of golden sunlight streaming through the lantern glass, and sniffed the air. The smell of cedar smoke and dry wolf fur was gone; in its place was the rich, intoxicating, humid scent of black earth, decaying leaf duff, and wet worm castings.
 
-To Scar, this was an alarming contradiction. Under the unwritten Acadian Boreal Statutes, warm dirt belonged to May, not January. He scrambled out from between Maya’s breasts—or what she internally referred to as her over-engineered calcium cannons, built for nursing a platoon but currently serving as a luxury boreal boarding house—and planted his tiny black paws squarely on the rim of her bra cup. He cocked his tufted ears, flicked his plume of a tail against her collarbone, and let out a sharp, questioning *chuff*.
+To Scar, this was an alarming contradiction. Under the unwritten Acadian Boreal Statutes, warm dirt belonged to May, not January. He scrambled out from the warm fleece of Maya’s shirt—where she carried him tucked against her ribs like an over-indulged tenant in a luxury boreal boarding house—and planted his tiny black paws squarely on the rim of her bra cup. He cocked his tufted ears, flicked his plume of a tail against her collarbone, and let out a sharp, questioning *chuff*.
 
 "Don't look at me like that, you freeloader," Maya said, nudging the tip of his nose with a dirt-stained knuckle. "The calendar says February is coming. Mac says we plant. If you don't like the mud, go back down to the bunk and count your sixty-four stolen butternuts."
 
-Scar leaned into her knuckle for a brief, vibrating scratch behind his ear, then scrambled down her ribs, hopped across the cedar workbench, and planted his front feet directly on the rim of the soil sieve. He reached into the dark loam with one tiny paw, pulled out a crumb of rotten hemlock bark, chewed on it with a disgusted grimace, and immediately spat it onto the zinc floor with an indignant chatter.
+Scar leaned into her knuckle for a brief, vibrating scratch behind his ear, then scrambled down her ribs, hopped across the cedar workbench, and planted his front feet directly on the rim of the soil sieve. He reached into the dark loam with one tiny paw, pulled out a crumb of rotten spruce bark, chewed on it with a disgusted grimace, and immediately spat it onto the zinc floor with an indignant chatter.
 
 "He's criticizing your sifting," Mac’s voice rumbled up the spiral stairs.
 
-Mac’s broad shoulders appeared through the trapdoor, followed by the rest of his six-foot-two frame. He was carrying a seventy-pound wooden hod balanced on his right shoulder, filled to the brim with rich, dark forest mold he had hauled up from the bottom of the root cellar vestibule where three barrels of composted hemlock needles, crushed mussel shells, and wood ash had spent the autumn curing at forty degrees.
+Mac’s broad shoulders appeared through the trapdoor, followed by the rest of his six-foot-two frame. He was carrying a seventy-pound wooden hod balanced on his right shoulder, filled to the brim with rich, dark forest mold he had hauled up from the bottom of the root cellar vestibule where three barrels of composted spruce needles, crushed mussel shells, and wood ash had spent the autumn curing at forty degrees.
 
 He moved with the effortless, rolling grace of an ocean-going dory riding a Fundy swell. He didn't heave or pant; the weight rested against his trapezius as if it were a bag of feathers.
 
@@ -48,7 +48,7 @@ Maya leaned over the hod, plunging both bare hands deep into the compost. She br
 
 "The texture is phenomenal," she said, her agricultural training taking over. She rubbed a pinch between her thumb and forefinger, examining the particle size. "It’s roughly forty percent partially decomposed coniferous litter, twenty percent coarse river sand, twenty percent well-rotted seaweed and fish meal from the autumn weir traps, and twenty percent screened wood ash."
 
-"Auntie Elizabeth’s blend," Mac said, picking up a wooden riddle—a square cedar frame with an eight-mesh galvanized wire screen tacked to the bottom with copper clouts. "The old Acadian grandmothers on the Tantramar dikes learned it from the L'nu three centuries ago. The sea gives you phosphorus, calcium, and potassium from the shells and kelp. The hemlock duff provides the acid-loving mycorrhizal fungi that crack the minerals loose. The sand keeps the capillaries open so the water doesn't pool and drown the seed. And the wood ash sweetens the pH just enough so the corn doesn't curl its roots."
+"Auntie Elizabeth’s blend," Mac said, picking up a wooden riddle—a square cedar frame with an eight-mesh galvanized wire screen tacked to the bottom with copper clouts. "The old Acadian grandmothers on the Tantramar dikes learned it from the L'nu three centuries ago. The sea gives you phosphorus, calcium, and potassium from the shells and kelp. The spruce duff provides the acid-loving mycorrhizal fungi that crack the minerals loose. The sand keeps the capillaries open so the water doesn't pool and drown the seed. And the wood ash sweetens the pH just enough so the corn doesn't curl its roots."
 
 Beside the riddle, Maya had laid out three glazed ceramic saucers containing strips of heavy rag paper that had been soaked in boiled red cabbage juice and dried on the stove shelf in October. She took a small glass dropper filled with distilled condensation water, mixed a pinch of the sifted soil in a saucer, and touched a droplet of the clear extract to a strip of purple paper.
 
@@ -102,7 +102,7 @@ Maya picked up a single amber kernel, rolling it between her thumb and index fin
 
 Maya looked at the seeds, then looked up at Mac.
 
-The giant woodsman was standing in the full wash of the morning sunlight. Through the open collar of his flannel shirt, the heavy muscles of his neck and shoulders were visible—broad, dense, and knotted with a physical mass that didn't belong to the gym-built men of the modern cities. It was the structure of an old-growth hemlock that had spent fifty years anchoring its roots into granite bedrock against forty-knot winds.
+The giant woodsman was standing in the full wash of the morning sunlight. Through the open collar of his flannel shirt, the heavy muscles of his neck and shoulders were visible—broad, dense, and knotted with a physical mass that didn't belong to the gym-built men of the modern cities. It was the structure of an old-growth red spruce that had spent fifty years anchoring its roots into granite bedrock against forty-knot winds.
 
 She thought of the previous month on the red ice.
 
@@ -142,7 +142,7 @@ He looked down at his own thick, calloused hands—hands that had split ten thou
 
 He looked at Maya, his face etched with the gravity of an inheritance that carried no joy, only duty.
 
-"When I was nine years old on the Miramichi," Mac continued in a low, measured cadence, "a pair of logging Clydesdales bolted on a frozen ice skid. The team weighed four thousand pounds, running blind down an eight-percent grade toward a timber crib where my cousins were sorting hemlock logs. My grandfather didn't shout. He didn't run. He just looked at me. I walked out into the middle of the ice, caught the trace chains in both hands, dug my heels into the frozen crust, and dragged those two horses to a dead halt in six feet. My shoulder didn't tear. The bones in my wrists didn't splinter. But when I looked at the horses, their eyes were rolling in white terror—not because of me, but because they felt the mountain standing in the harness."
+"When I was nine years old on the Miramichi," Mac continued in a low, measured cadence, "a pair of logging Clydesdales bolted on a frozen ice skid. The team weighed four thousand pounds, running blind down an eight-percent grade toward a timber crib where my cousins were sorting red spruce logs. My grandfather didn't shout. He didn't run. He just looked at me. I walked out into the middle of the ice, caught the trace chains in both hands, dug my heels into the frozen crust, and dragged those two horses to a dead halt in six feet. My shoulder didn't tear. The bones in my wrists didn't splinter. But when I looked at the horses, their eyes were rolling in white terror—not because of me, but because they felt the mountain standing in the harness."
 
 He shook his head, a faint, melancholic smile touching his graying beard.
 
@@ -204,7 +204,7 @@ Maya focused her attention outward.
 
 At first, there was only darkness. Then, beneath the sound of her own breath, she heard it: a slow, rhythmic, cavernous sound. It was the respiration of the wolf—deep, slow, four breaths per minute. As she listened, she realized she could feel the heat radiating from his massive skull, resting on the cedar wood three feet away.
 
-"He is not sleeping," Mac whispered. "He is listening to the river. His ears can hear the ice grinding two miles away in the cove. He can hear the voles moving through the snow tunnels under the living fence. He knows there is an eagle perched on the dead hemlock across the ravine."
+"He is not sleeping," Mac whispered. "He is listening to the river. His ears can hear the ice grinding two miles away in the cove. He can hear the voles moving through the snow tunnels under the living fence. He knows there is an eagle perched on the dead red spruce across the ravine."
 
 "How does he know?" Maya breathed, her eyes still closed.
 
@@ -218,7 +218,7 @@ Maya felt a tiny, warm weight land softly on the back of her left hand.
 
 She didn't open her eyes. She felt four microscopic claws grip the skin of her knuckles, followed by the soft, damp touch of a tiny whiskered nose sniffing the crease between her fingers. Scar did not chitter. He did not bite. He simply sat on her hand, his little ribcage rising and falling in perfect, synchronized rhythm with her own slowed breath.
 
-Through the contact of his tiny paws, a sudden, vivid impulse flashed across her consciousness—not words, but a rapid, sensory projection: *cold wind... sharp shadow crossing the hemlocks... big curved beak... safety of the wool pocket... warm nuts.*
+Through the contact of his tiny paws, a sudden, vivid impulse flashed across her consciousness—not words, but a rapid, sensory projection: *cold wind... sharp shadow crossing the red spruces... big curved beak... safety of the wool pocket... warm nuts.*
 
 Maya gasped softly. "A red-tail," she whispered. "He saw a red-tailed hawk crossing the ravine."
 
@@ -248,7 +248,7 @@ The transition from the sun-drenched greenhouse of the lantern room to the stone
 
 The air smelled of coal smoke, hot iron, cured pine shavings, and boiled linseed oil.
 
-Maya stood at the treadle lathe—a massive, timber-framed machine Mac had built from squared eight-by-eight hemlock posts, equipped with a heavy flywheel cast from lead scrap and concrete, driven by a wide leather belt connected to a foot treadle.
+Maya stood at the treadle lathe—a massive, timber-framed machine Mac had built from squared eight-by-eight tamarack posts, equipped with a heavy flywheel cast from lead scrap and concrete, driven by a wide leather belt connected to a foot treadle.
 
 Mounted between the iron centers of the lathe was a six-inch billet of seasoned staghorn sumac, roughly two inches in diameter.
 
@@ -350,7 +350,7 @@ Within four heats, the spoon auger was forged. Mac quenched the working tip in a
 
 Beside the forge stood the collection sled they had built during the January freeze—a six-foot toboggan framed from steamed white ash poles, its bottom clad with two-inch strips of ultra-high-molecular-weight polyethylene scavenged from the guide rails of the old grain elevator at the rail siding. The plastic runners had been countersunk and fastened to the ash with flush copper rivets, allowing the sled to glide over crusted snow or wet mud with a coefficient of friction lower than wet ice.
 
-"The sled harness," Maya said, picking up the rawhide breast-collar and traces she had braided from deer babiche. "Nipn tested the draft tension yesterday. With a sixty-gallon tank of sap, the hauling resistance on packed trail is less than fifteen pounds of horizontal pull. A single person and the wolf can bring two barrels down from the hemlock ravine in twenty minutes."
+"The sled harness," Maya said, picking up the rawhide breast-collar and traces she had braided from deer babiche. "Nipn tested the draft tension yesterday. With a sixty-gallon tank of sap, the hauling resistance on packed trail is less than fifteen pounds of horizontal pull. A single person and the wolf can bring two barrels down from the spruce ravine in twenty minutes."
 
 "That's twenty miles of back-carrying saved every week of the run," Mac said, hanging the newly forged spoon auger in the brace. "A homesteader who wastes his calories carrying water when the snow can float it is a homesteader who burns out before planting season. Efficiency is survival."
 
@@ -502,7 +502,7 @@ The sound of the stone on the steel was rhythmic, soothing, and ancient—the so
 
 "Aye?"
 
-"Tomorrow, we go up to the hemlock ridge."
+"Tomorrow, we go up to the sugar-maple ridge."
 
 Maya paused her tweezers over the second seed flat. "The sugar bush?"
 

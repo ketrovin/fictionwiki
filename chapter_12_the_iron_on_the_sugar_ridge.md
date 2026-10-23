@@ -34,7 +34,7 @@ Maya stood knee-deep in the crusted snow at the base of a grandmother maple whos
 
 In her right hand, held firmly and deliberately by its center balance, she carried her white ash staff, using its iron-clad spike to test the crust ahead of each step. Beside her, resting on the hard snow, sat the wooden tool basket containing thirty turned sumac spiles, a roll of rawhide cord, and the newly forged high-carbon spoon auger clamped into its two-foot birch brace.
 
-Nestled deep inside the unbuttoned neck of her heavy wool sweater, tucked into the warm, secure hollow between Maya’s breasts—her personal calcium cannons, currently functioning as a five-star boreal sanctuary—Scar was in his absolute glory.
+Nestled deep inside the unbuttoned neck of her heavy wool sweater, tucked into the warm, secure hollow against Maya’s chest inside the wool sweater, Scar was in his absolute glory.
 
 The little red squirrel had his front paws planted firmly on the rim of her sports bra, his black whiskered nose twitching in rapid, ecstatic circles. The scent of wood smoke was faint on the wind, but cutting through it was an aroma that set every neuron in his small brain firing: the clean, sweet, mineral fragrance of raw maple sap bleeding from the wood. It was ninety-eight percent water and two percent pure sucrose, cold as meltwater and carrying the distilled vitality of the earth.
 
@@ -456,7 +456,7 @@ His face was an ancient mask of dark stone. The black dilation in his pupils was
 
 The sergeant looked up, swallow hard, his Adam’s apple bobbing in his throat.
 
-"Colonel Ross," the sergeant rasped, his teeth chattering uncontrollably from shock. "Amherst Armory Command. Vance died of the lung rot three weeks back—choked on his own blood. Ross took command of the regiment. We... we have sixty-four people left in the barracks. The fuel tanks rotted in December. The canned stores are down to dry beans and spoiled flour. We had rumors... rumors from Sussex that there was an old fortress on this river. A man who couldn't be killed. A farm with corn and cattle."
+"Colonel Ross," the sergeant rasped, his teeth chattering uncontrollably from shock. "Amherst Armory Command. The old commander died of the winter lung rot three weeks back—choked on his own blood. Ross took command of the regiment. We... we have sixty-four people left in the barracks. The fuel tanks rotted in December. The canned stores are down to dry beans and spoiled flour. We had rumors... rumors from Sussex that there was an old fortress on this river. A man who couldn't be killed. A farm with corn and cattle."
 
 "And your orders?" Maya asked, stepping up beside Mac, her white ash staff resting grounded in her right hand, her breathing steady and cold.
 

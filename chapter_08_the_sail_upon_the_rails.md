@@ -36,7 +36,7 @@ He pulled the final trucker’s hitch tight, testing the hemp line with a single
 
 "Seventy pounds of cold-smoked gaspereau," Mac rumbled, ticking off the manifest in his deep, gravelly baritone. "Two thirty-pound tubs of coarse solar salt from the sandstone pans. Four gallons of high-test gasoline siphoned from the raider's Honda. And Auntie Elizabeth’s heritage squash and bean seeds."
 
-He looked back across the tamarack deck at Maya, his pale blue eyes taking in her battered throat, her steady grip on the ash staff, and the twitching red head perched between her calcium cannons.
+He looked back across the tamarack deck at Maya, his pale blue eyes taking in her battered throat, her steady grip on the ash staff, and the twitching red head perched in the warm fleece of her shirt.
 
 There was zero patronizing sympathy in his face. There was only the calm, unshakeable respect of one veteran survivor looking at another.
 
@@ -56,7 +56,7 @@ She took her station at the rear of the handcar, right beside the vertical boile
 
 Mac reached down to the ballast, whistling a low, two-note call through his teeth.
 
-From the edge of the hemlock thicket, Nipn emerged in a silent, silver blur.
+From the edge of the red spruce thicket, Nipn emerged in a silent, silver blur.
 
 The wolf didn't bound clumsily onto the handcar. He leaped six feet through the air in a single, effortless arc, his broad paws landing on the forward cargo tarpaulins without making a sound louder than a dropped glove. He turned twice on the canvas, curled his long, muscular body around the mast thwart, and rested his chin on his front paws, his amber eyes fixed intently down the long, straight iron corridor to the south.
 
@@ -220,7 +220,7 @@ He pointed to a group of three crude wooden grave markers—weathered driftwood 
 
 Maya looked down at the grease-stained deck beneath her boots.
 
-She remembered the Sussex truck stops. She remembered the women who had traded their bodies for a half-gallon of kerosene, the men who had murdered their neighbors for a box of moldy cereal, and the warlord Vance who had treated human beings like scrap iron to be used, broken, and discarded.
+She remembered the Sussex truck stops. She remembered the women who had traded their bodies for a half-gallon of kerosene, the men who had murdered their neighbors for a box of moldy cereal, and the warlord Thorne who had treated human beings like scrap iron to be used, broken, and discarded.
 
 She reached down, her gloved fingers gently resting over the warm, furry head of the squirrel wedged between her breasts.
 
@@ -285,7 +285,7 @@ The sound rolled through the rock cut, echoing off the sandstone walls.
 
 For ten seconds, the silence of the woods hung heavy and unbroken.
 
-Then, sixty feet above them on the northern cliff rim, the hemlock branches parted.
+Then, sixty feet above them on the northern cliff rim, the red spruce branches parted.
 
 A man stepped out onto a projecting sandstone ledge. He was tall, lean, and weathered dark as walnut from fifty years of sea wind, wearing an oil-tanned seal-skin vest over heavy wool, holding a pre-collapse Winchester Model 94 lever-action .30-30 rifle cradled loosely across his forearm.
 
@@ -297,7 +297,7 @@ A wide, weathered grin split the sentry's leathery face, revealing a missing can
 
 High up the canyon, a heavy iron clatter echoed across the rock.
 
-A massive defensive gate—constructed from eight-inch squared hemlock timbers studded with three-foot forged iron spikes and weighted with counterbalancing stone cribs—swung inward on massive, hand-forged strap hinges, opening a twelve-foot breach in the palisade.
+A massive defensive gate—constructed from eight-inch squared tamarack timbers studded with three-foot forged iron spikes and weighted with counterbalancing stone cribs—swung inward on massive, hand-forged strap hinges, opening a twelve-foot breach in the palisade.
 
 "Release the brakes, Maya," Mac smiled, stepping back to the walking beam. "Let's roll into harbor."
 
@@ -399,7 +399,7 @@ At the mention of Sussex, Noel’s smile vanished, his dark eyes hardening into 
 
 He looked at the dark-purple bruises on her neck.
 
-"Vance’s scavengers?" Noel asked quietly, his voice dropping into a dangerous, low register.
+"Thorne’s scavengers?" Noel asked quietly, his voice dropping into a dangerous, low register.
 
 "Three of them," Maya nodded, her jaw tightening. "They ambushed me at the Stony Creek siding yesterday morning."
 
@@ -407,7 +407,7 @@ Noel looked at Mac. "And what happened to the three riders, Kwitn?"
 
 Mac stepped forward, untying the tarpaulins over the cargo bed, his face calm and unreadable.
 
-"One is tied to an oak bench in the maintenance shed with his own zip-ties," Mac said evenly. "One has a shattered wrist and zero transport. And their leader, Cody, is walking the forty miles back to Sussex on his bare, bleeding feet through the black-fly bogs, carrying my warning to Vance."
+"One is tied to an oak bench in the maintenance shed with his own zip-ties," Mac said evenly. "One has a shattered wrist and zero transport. And their leader, Cody, is walking the forty miles back to Sussex on his bare, bleeding feet through the black-fly bogs, carrying my warning to Thorne."
 
 A collective gasp of fierce, savage satisfaction swept through the gathered crowd.
 
@@ -449,7 +449,7 @@ The tool felt alive in her hands: the weight of the head pulled the edge straigh
 
 "Sheffield quality, Noel," Maya said, her eyes shining with admiration. "Tempered to five hundred degrees in salt tallow?"
 
-"Five hundred and ten," Noel grinned proudly. "Quenched in seal oil and drawn over birch charcoal. That edge will cut through hemlock knots all winter and shave the hair off your forearm at supper time."
+"Five hundred and ten," Noel grinned proudly. "Quenched in seal oil and drawn over birch charcoal. That edge will cut through red spruce knots all winter and shave the hair off your forearm at supper time."
 
 He wiped his hands on his bullhide apron, looking at Maya with deep, paternal warmth.
 
@@ -529,13 +529,13 @@ Maya sat down on the wide bench beside the rocking chair, resting her ash staff 
 
 Elizabeth took a slow puff of her cherry pipe, looking out across the vast, sparkling blue waters of Shepody Bay.
 
-"Kwitn told me what happened at the Stony Creek siding," Elizabeth said quietly, the smoke curling around her silver braids. "Vance’s dogs tried to strangle you against the iron."
+"Kwitn told me what happened at the Stony Creek siding," Elizabeth said quietly, the smoke curling around her silver braids. "Thorne’s dogs tried to strangle you against the iron."
 
 "They tried," Maya replied, her voice steady and hard as cold steel. "Mac broke them. We threw their machines into the gorge, took their fuel and chains, and sent their leader walking barefoot back to Sussex."
 
 Elizabeth nodded once—a slow, grim nod that carried centuries of ancestral memory.
 
-"Good," the elder said flatly. "Men like Vance are not human beings anymore, Maya. They are parasites that fed on the rotting corpse of the old cities. They think because they have an engine and a gun, they can turn the world into a plantation and treat women like draft horses. But the machines are dying. Their gas is burning out. And the winter will finish what Kwitn started."
+"Good," the elder said flatly. "Men like Thorne are not human beings anymore, Maya. They are parasites that fed on the rotting corpse of the old cities. They think because they have an engine and a gun, they can turn the world into a plantation and treat women like draft horses. But the machines are dying. Their gas is burning out. And the winter will finish what Kwitn started."
 
 She reached down, lifting the heavy, braided sweetgrass basket from the floor, setting it on Maya’s lap.
 
@@ -591,7 +591,7 @@ Elizabeth smiled—a slow, beautiful, ancient smile that erased eighty years of 
 
 Night fell across Fort Folly in a magnificent, velvet wash of indigo and starlight.
 
-Inside the great cedar-timbered longhouse, the central hearth fire roared with dry birch logs and seasoned driftwood, throwing dancing golden light across sixty feet of hand-hewn hemlock beams.
+Inside the great cedar-timbered longhouse, the central hearth fire roared with dry birch logs and seasoned driftwood, throwing dancing golden light across sixty feet of hand-hewn red spruce beams.
 
 The scent inside the hall was intoxicating: the rich, salty steam of fresh-boiled Atlantic cod; the earthy sweetness of marsh potatoes boiled in their skins; the sharp, resinous perfume of cold spruce beer brewed from spring tips and wild molasses; and the nutty aroma of parched cornmeal mush drizzled with dark honey.
 
@@ -601,7 +601,7 @@ Maya sat at the high table between Mac and Noel, her plate piled high with tende
 
 Her white ash staff leaned against the bench beside her, her splinted leg rested comfortably on a folded sheepskin fleece, and her appetite was clean, fierce, and unhurried.
 
-And nestled in his undisputed place of honor between Maya's calcium cannons, Scar was living like an emperor.
+And nestled in his undisputed place of honor in the warm hollow of Maya's shirt, Scar was living like an emperor.
 
 The squirrel had been provided with his own small wooden trencher plate set on the table directly in front of Maya’s chest: heaped with cracked butternuts, parched corn kernels, and two sweet dried blueberries Noel’s wife had brought from the pantry. Scar was methodically stuffing his cheek pouches, his little tail twitching with transcendental bliss, occasionally pausing to reach up and groom Maya’s flannel collar with his tiny front paws, completely unbothered by the sixty humans celebrating around him.
 
@@ -625,13 +625,13 @@ Maya’s fork paused in mid-air. "He made it back to Salisbury?"
 
 The longhouse erupted in a burst of harsh, satisfied laughter from the fishermen and hunters.
 
-"What did he tell Vance’s people?" Mac asked quietly.
+"What did he tell Thorne’s people?" Mac asked quietly.
 
 "He told them the southern valley is cursed," Noel replied, his dark eyes glowing with fierce pride. "He told them that the girl they were hunting is guarded by a six-foot-five *Kinap* giant who catches nine-inch knives in mid-air with his bare fingers and throws two-stroke motorcycles sixty feet into the river gorge like tin cans. He told them the woods are full of wolves and psychotic biting squirrels that tear men’s ears off, and that if any machine comes south of Stony Creek, the giant will walk to Sussex and tear their compound down to the dirt."
 
 Noel slammed his fist onto the table, making the wooden trenchers jump.
 
-"Gabriel said Vance called an emergency council at the truck stop," Noel continued, his voice ringing with absolute triumph. "Half his riders refused to mount up. They said they signed on to scavenge abandoned grocery stores and shoot deer, not to fight forest spirits and giants who break iron rails over their knees. Vance had to back down. They’ve pulled their outposts back to the Sussex town limits, and they’ve barricaded the highway bridges to the south."
+"Gabriel said Thorne called an emergency council at the truck stop," Noel continued, his voice ringing with absolute triumph. "Half his riders refused to mount up. They said they signed on to scavenge abandoned grocery stores and shoot deer, not to fight forest spirits and giants who break iron rails over their knees. Thorne had to back down. They’ve pulled their outposts back to the Sussex town limits, and they’ve barricaded the highway bridges to the south."
 
 A deafening cheer broke out across the longhouse, men banging their wooden mugs against the pine tables, shouting toasts to the red river and the Old Stone Light.
 
@@ -665,7 +665,7 @@ Above the headland, the northern lights began to dance—long, shimmering curtai
 
 Inside the hall, the fire burned tall and bright. The cod was sweet. The iron axes rested in the chest. The seeds slept safe in their sweetgrass basket.
 
-And nestled securely between Maya's calcium cannons, full of roasted butternuts and warm tea, the little red king closed his eyes, curled his bushy tail over his nose, and fell into a deep, victorious sleep, knowing that his kingdom was sovereign, his human was safe, and the road belonged to the free.
+And nestled securely in the warm hollow of Maya's shirt, full of roasted butternuts and warm tea, the little red king closed his eyes, curled his bushy tail over his nose, and fell into a deep, victorious sleep, knowing that his kingdom was sovereign, his human was safe, and the road belonged to the free.
 
 
 ---
@@ -726,7 +726,7 @@ And mounted to the forward cross-beam of the draisine, Noel had bolted a masterp
 
 A heavy, curved plow-deflector forged from a three-foot section of high-carbon railway rail, heated, split, and pointed like the prow of an icebreaker.
 
-"If Cody or Vance ever try to drag a fallen hemlock across the track," Noel rumbled, wiping his greasy hands on his leather apron, "this iron wedge will split an eight-inch spruce log like kindling and throw it into the ditch at thirty miles an hour without shaking the deck."
+"If Cody or Thorne ever try to drag a fallen red spruce across the track," Noel rumbled, wiping his greasy hands on his leather apron, "this iron wedge will split an eight-inch spruce log like kindling and throw it into the ditch at thirty miles an hour without shaking the deck."
 
 Maya ran her gloved fingers over the polished, blue-black steel of the rail plow, her eyes glowing with admiration.
 
@@ -791,7 +791,7 @@ Driven by the southwest Fundy sea gale and the turning tide, the draisine hissed
 
 Maya hauled back on the boiled-maple brake lever, bringing the four-hundred-pound speeder to a smooth, silent halt right beside the spruce shed.
 
-The morning sun had cleared the eastern bluffs, bathing the crushed clam-shell courtyard in brilliant, golden warmth. The living willow fence was shimmering with morning dew, the Three Sisters garden was rustling in the breeze, and from the stone chimney of the hemlock cabin, a thin, fragrant wisp of blue birch smoke rose straight into the blue sky.
+The morning sun had cleared the eastern bluffs, bathing the crushed clam-shell courtyard in brilliant, golden warmth. The living willow fence was shimmering with morning dew, the Three Sisters garden was rustling in the breeze, and from the stone chimney of the red spruce cabin, a thin, fragrant wisp of blue birch smoke rose straight into the blue sky.
 
 Nipn leaped lightly from the deck, trotting over to the rain barrel to take a long, deep drink of the sweet mountain water, his tail giving three slow, contented thumps against the flagstones.
 

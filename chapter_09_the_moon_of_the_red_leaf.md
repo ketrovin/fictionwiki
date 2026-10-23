@@ -6,9 +6,9 @@
 
 The morning of the first hard frost arrived across the Petkotkweyak with the quiet, biting clarity of broken glass.
 
-At half-past five, the temperature along the river bluffs had plunged to twenty-six degrees Fahrenheit. The thick salt fog of September was gone, replaced by a crystalline northern sky the color of a bruised plum. Every hemlock needle on the ridge was rimed in brilliant white hoarfrost, and the red mud flats thirty feet below the cabin were frozen into a brittle, crusty pavement of iron-hard shale that crunched like gravel beneath the boots of the early gulls.
+At half-past five, the temperature along the river bluffs had plunged to twenty-six degrees Fahrenheit. The thick salt fog of September was gone, replaced by a crystalline northern sky the color of a bruised plum. Every red spruce needle on the ridge was rimed in brilliant white hoarfrost, and the red mud flats thirty feet below the cabin were frozen into a brittle, crusty pavement of iron-hard shale that crunched like gravel beneath the boots of the early gulls.
 
-In the sleeping alcove of the hemlock cabin, Maya did not wake to the cold.
+In the sleeping alcove of the cedar cabin, Maya did not wake to the cold.
 
 She woke to the cramp.
 
@@ -78,7 +78,7 @@ And in forty-eight hours, this single, fragile, yellowed pre-collapse pad would 
 
 From the outer room, the heavy iron door of the cast-iron cookstove creaked open with a low, metallic squeak.
 
-The sound of dry birch splits hitting the grate echoed through the hemlock wall boards, followed by the crisp, fragrant *crackle-pop* of dry birchbark catching flame.
+The sound of dry birch splits hitting the grate echoed through the spruce wall boards, followed by the crisp, fragrant *crackle-pop* of dry birchbark catching flame.
 
 The scent of woodsmoke, roasted chicory, and frying salt pork began to drift beneath the wool door curtain.
 
@@ -116,7 +116,7 @@ His pale blue eyes, trained by a decade of tracking wolves and reading the micro
 
 He set the tool down on the shaving bench without making a sound.
 
-He walked across the hemlock floorboards, wiping his hands on a clean linen tea towel, stopping three paces away. He didn't tower over her; he tilted his head, his face softening with immediate, genuine concern.
+He walked across the split yellow birch floorboards, wiping his hands on a clean linen tea towel, stopping three paces away. He didn't tower over her; he tilted his head, his face softening with immediate, genuine concern.
 
 "Your ankle gave out," Mac said, his tone matter-of-fact. "You put weight on it too fast coming back from Fort Folly."
 
@@ -148,7 +148,7 @@ Mac’s brow furrowed in mild confusion.
 
 "Hillsborough had a small Co-op pharmacy on the main street," he answered carefully. "The roof caved in during the second winter. The inventory was looted five years ago by refugees heading for the coast. Why? Are you looking for painkillers? I have dried meadowsweet and wild willow bark in the cellar with three times the salicin concentration of synthetic aspirin."
 
-"I don't need aspirin, Mac," Maya said, her voice dropping into a flat, raw, desperate register that held nothing back. "I need pads. Menstrual pads. Cotton, cellulose, adhesive strips, tampons—whatever the hell women used to buy in boxes before the power grid died."
+"I don't need aspirin, Mac," Maya said, her voice dropping into a flat, raw, desperate register that held nothing back. "I need pads. Menstrual pads. Cotton, cellulose, adhesive strips, tampons—whatever in the world women used to buy in boxes before the power grid died."
 
 She pulled the crumpled, yellowed plastic wrapper from her jeans pocket and slammed it onto the cedar counter between them with a dry *slap*.
 
@@ -278,7 +278,7 @@ By midday, the cabin was transformed into a sun-warmed tailor's shop.
 
 The four screens of cheesecloth suspended from the ceiling joists directly above the masonry heater were piled high with three inches of drying sphagnum moss. The dry, thirty-degree heat rising from the soapstone bricks had driven out the moisture, transforming the damp fibers into an airy, cloud-soft batting that was pure white, completely odorless, and impossibly soft to the touch.
 
-Mac had pulled out a heavy, iron-strapped cedar chest from beneath the worktable, setting it open on the hemlock floor.
+Mac had pulled out a heavy, iron-strapped cedar chest from beneath the worktable, setting it open on the red spruce floor.
 
 Inside lay the textile wealth of the lower estuary:
 
@@ -398,7 +398,7 @@ The squirrel didn't chitter. He didn't demand sunflower seeds.
 
 With slow, deliberate, unhurried caution, Scar turned his body around inside her flannel shirt.
 
-He did not stay in his established command post between her calcium cannons.
+He did not stay in his established command post in the warm fleece of her shirt.
 
 He wiggled down.
 
@@ -447,7 +447,7 @@ Maya woke in the sleeping alcove before the sun had cleared the eastern bluff, b
 
 The heavy, dragging ache in her pelvis was gone. The tight lumbar spasms had relaxed into a warm, comfortable stillness.
 
-She sat up on the edge of the mattress, taking a slow, deep breath of the crisp hemlock air.
+She sat up on the edge of the mattress, taking a slow, deep breath of the crisp spruce air.
 
 She reached down to check her clothing.
 
@@ -487,7 +487,7 @@ From the sleeping alcove, a sleepy red head poked around the wool door curtain.
 
 Scar had officially vacated his heating pad assignment on her lower abdomen.
 
-The little squirrel scrampered across the hemlock floorboards in three blinding leaps, scrambled up the leg of her wool trousers like a mountaineer ascending a vertical cliff, scampered up her canvas vest, and dove straight into the unbuttoned V-neck of her flannel shirt.
+The little squirrel scrampered across the split yellow birch floorboards in three blinding leaps, scrambled up the leg of her wool trousers like a mountaineer ascending a vertical cliff, scampered up her canvas vest, and dove straight into the unbuttoned V-neck of her flannel shirt.
 
 He wiggled down into his established headquarters: settling his hindquarters into the soft fleece cup of her left bra, resting his front paws on her collarbone, and popping his whiskered snout out between her fourth and fifth buttons.
 
@@ -551,7 +551,7 @@ Each kernel was covered in a hard, glassy layer of flint starch—*Zea mays indu
 
 For four hours, they worked the southern terrace in a continuous, hypnotic rhythm of abundance:
 
-Maya snapping the ears and piling them into the ash baskets; Mac hauling the heavy barrows to the cabin porch; Nipn guarding the perimeter; and Scar riding between Maya’s calcium cannons, popping his head out every few minutes to inspect each ear of corn with critical, connoisseur-like precision.
+Maya snapping the ears and piling them into the ash baskets; Mac hauling the heavy barrows to the cabin porch; Nipn guarding the perimeter; and Scar riding in the warm fleece of Maya’s shirt, popping his head out every few minutes to inspect each ear of corn with critical, connoisseur-like precision.
 
 By noon, the harvest of the twenty-four mounds stood completed:
 
@@ -641,7 +641,7 @@ He reached out with one massive, five-inch clawed paw, hooked the first mackerel
 
 He ate all four fish in ninety seconds, licked a silver scale from his black lower lip, gave a loud, resonant belch that echoed off the sandstone bluffs, and looked up at Maya with small, dark eyes that held centuries of unhurried woodland peace.
 
-*Good female with the wooden stick,* the bear thought, his consciousness washing over her with immense, drowsy warmth. *The silver-skins are very fat. The red tree-rat in her fur is quiet. I will sleep beneath the great hemlock on the high ridge. Do not let the bad road-crawlers wake me.*
+*Good female with the wooden stick,* the bear thought, his consciousness washing over her with immense, drowsy warmth. *The silver-skins are very fat. The red tree-rat in her fur is quiet. I will sleep beneath the great red spruce on the high ridge. Do not let the bad road-crawlers wake me.*
 
 "Nobody will wake you, Ursus," Mac rumbled gently, stepping up beside Maya. "The northern gate is shut. The valley is peaceful."
 
@@ -653,7 +653,7 @@ As twilight descended, the cold returned with a vengeance.
 
 The thermometer on the cabin porch plunged past twenty degrees, and the wind began to whistle through the high spruce needles with that thin, crystalline whine that heralded the approach of the northern winter.
 
-Inside the cabin, the central masonry heater was roaring with split sugar maple logs, radiating a bone-deep seventy-degree warmth that made the hemlock room feel like an island of summer in a sea of frost.
+Inside the cabin, the central masonry heater was roaring with split sugar maple logs, radiating a bone-deep seventy-degree warmth that made the red spruce room feel like an island of summer in a sea of frost.
 
 The braided garlands of garnet flint corn hung from the ceiling joists, glowing like rubies in the firelight.
 
@@ -715,7 +715,7 @@ She looked at Mac, sitting across the candle-lit table with his blue eyes crinkl
 
 She looked at Nipn, sleeping peacefully across the bedroom threshold, his silver coat rising and falling in deep, unbroken security.
 
-She looked up at the garlands of garnet corn and dried beans hanging from the sturdy hemlock beams.
+She looked up at the garlands of garnet corn and dried beans hanging from the sturdy red spruce beams.
 
 Outside the thick log walls, the first heavy white snowflakes of the northern winter were beginning to drift down through the black spruces, whispering against the glass, coating the red mud flats of the Petitcodiac in a mantle of pure, silent white.
 
@@ -734,7 +734,7 @@ The mercury in the bronze thermometer on the cabin porch had dropped to twelve d
 
 The Petitcodiac was no longer liquid red mud: the high salt tides still surged up the gorge twice a day, but along the banks and over the mud flats, massive rafts of jagged, six-inch shore ice—churned into round, frozen cakes by the tidal bore—were grinding against the sandstone bluffs with a continuous, groaning roar that sounded like crushing millstones.
 
-The time had come to execute the annual winter migration: moving the core living quarters from the summer hemlock cabin up into the warm, unassailable fortress of the **Old Stone Light**.
+The time had come to execute the annual winter migration: moving the core living quarters from the summer cedar cabin up into the warm, unassailable fortress of the **Old Stone Light**.
 
 Mac and Maya spent two full days carrying the winter provisions up the seventy-four spiral steps of hand-cut Albert County granite:
 
@@ -754,7 +754,7 @@ On the pine table beside her lay her tailored linen moon cloths—washed, boiled
 
 Across her lap lay her white ash staff, though she rarely touched it now; her left ankle was healed, tight, and strong.
 
-And curled inside the warm, flannel-lined V-neck of her green work shirt, wedged comfortably between her calcium cannons, Scar was fast asleep.
+And curled inside the warm, flannel-lined V-neck of her green work shirt, wedged comfortably in the warm fleece of her shirt, Scar was fast asleep.
 
 The squirrel’s private hoard had been reorganized: he had transferred three cracked butternuts from her bra into a hollow pine knot beside the library bookshelf, but he had kept two prime sunflower seeds and a single glossy garnet corn kernel tucked behind her underwire as an emergency traveling ration.
 
@@ -826,7 +826,7 @@ The flakes swirled around the seventy-foot granite lantern room in a furious, ch
 
 Down in the circular apartment below, the cylinder stove roared with dry maple heat, the four thousand leather-bound books stood dry and warm on their pine shelves, the wolf slept on his fleece rug, and seventy-four steps of solid granite anchored their lives to the bedrock of the continent.
 
-Inside Maya’s shirt, nestled snugly in the 98.6-degree warmth between her calcium cannons, Scar gave a tiny, contented purr, poked his nose out just far enough to sniff the cold glass, decided the weather was terrible, and tucked his head back into his nest.
+Inside Maya’s shirt, nestled snugly in the 98.6-degree warmth in the warm fleece of her shirt, Scar gave a tiny, contented purr, poked his nose out just far enough to sniff the cold glass, decided the weather was terrible, and tucked his head back into his nest.
 
 Maya closed her eyes, resting her forehead against Mac’s broad chest, feeling the deep, steady, unshakeable rhythm of his heart beating through the wool.
 

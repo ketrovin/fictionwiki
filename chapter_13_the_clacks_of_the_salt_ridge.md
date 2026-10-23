@@ -56,7 +56,7 @@ The light paused for another five seconds, then began a rapid, rhythmic flutter:
 
 *A-M-H-E-R-S-T. W-H-A-L-E-B-O-A-T-S. E-I-G-H-T. C-R-E-W-S. F-O-R-T-Y. P-I-N-T-L-E. B-R-O-W-N-I-N-G-S.*
 
-Maya’s jaw tightened. "Vance is dead. Colonel Ross took the armory. Eight whaleboats. Forty men. Pintle-mounted Brownings. That matches what the scout on the sugar ridge spat out before his chest gave out."
+Maya’s jaw tightened. "The old warlord in Amherst is dead. Colonel Ross took the armory. Eight whaleboats. Forty men. Pintle-mounted Brownings. That matches what the scout on the sugar ridge spat out before his chest gave out."
 
 "Forty conscripts and ten militia regulars to hold the gunwales," Mac corrected quietly. "Ross isn't sending his veterans to pull eight-foot ash oars through four knots of Petitcodiac mud. He’ll put six farm boys from Cumberland County on each thwart with an NCO in the stern sheet holding a service automatic to their ears. And the Brownings will be fifty-calibers stripped from the armory's half-tracks."
 
@@ -138,7 +138,7 @@ Noel lowered the rifle, his dark eyes meeting Mac’s. "And the other three?"
 
 "Under the high drift behind the blacksmith shop," Mac replied. "The foxes will find what’s left of them when the sun gets over the hill in May."
 
-Noel let out a long, slow whistle through his teeth. "You read Auntie's flash? Vance is dead, Mac. Died three days back—coughed his lungs out into a bloody blanket in the armory hospital, and that was the end of him. But Colonel Ross is the one running the garrison now. Ross is an old North Nova Scotia Highlander officer, and he’s twice as dangerous. He’s got eighty men in the barracks on Acadia Street. He cut the rations to half-rations of salt beef and dried apples, put armed NCOs on the gates, and he’s pushing the whaleboats day and night. He needs a win before the ice goes out. If Ross can take your light, he controls the river from the mouth of the Petitcodiac all the way to the Moncton bend. He can tax every canoe, every scow, every net of gaspereau that comes down the water."
+Noel let out a long, slow whistle through his teeth. "You read Auntie's flash? The old warlord is dead, Mac. Died three days back—coughed his lungs out into a bloody blanket in the armory hospital, and that was the end of him. But Colonel Ross is the one running the garrison now. Ross is an old North Nova Scotia Highlander officer, and he’s twice as dangerous. He’s got eighty men in the barracks on Acadia Street. He cut the rations to half-rations of salt beef and dried apples, put armed NCOs on the gates, and he’s pushing the whaleboats day and night. He needs a win before the ice goes out. If Ross can take your light, he controls the river from the mouth of the Petitcodiac all the way to the Moncton bend. He can tax every canoe, every scow, every net of gaspereau that comes down the water."
 
 "He won't take the light," Maya said, her voice hard as the ash staff in her fist.
 
@@ -279,7 +279,7 @@ When her fingers touched his warm, furry flank, he let out a tiny, indignant *wh
 
 Maya sighed, a wry, self-deprecating smirk tugging at her mouth. 
 
-*Calcium cannons,* she thought, shaking her head at the sheer ridiculousness of her life. That was what she had called them back when she was sixteen and running wild through the abandoned high school corridors in Moncton, back before the grid died, before the salt flats became a battlefield, before she had to worry about sniper optics and winter rationing. Back then, breasts were just an annoying biological development that made running hurdles miserable and required three sports bras to keep under control. 
+*Heavy artillery,* she thought, shaking her head at the sheer ridiculousness of her life. That was what she had called them back when she was sixteen and running wild through the abandoned high school corridors in Moncton, back before the grid died, before the salt flats became a battlefield, before she had to worry about sniper optics and winter rationing. Back then, breasts were just an annoying biological development that made running hurdles miserable and required three sports bras to keep under control. 
 
 Now? Now they were a ninety-eight-point-six-degree incubator for a three-pound tactical early-warning radar. 
 

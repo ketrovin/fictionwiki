@@ -38,7 +38,7 @@ From the deep, shadowed valley between her collarbones—tucked firmly into the 
 
 "Easy, you little monster," Maya murmured, her lips curling into a grin. She closed the folio with a soft leather *thump* and reached up with one knuckle to stroke the red squirrel right between his ears. "The world is not ending. It’s just winter. You have fifty pounds of dried butternuts and yellow flint corn sitting five feet from your nose."
 
-Scar leaned into her knuckle with a prolonged, purring vibration that rattled through his small ribcage, but he refused to leave his perch. To Scar, the universe possessed a very clear structural hierarchy: outside was the frozen abyss where red hawks and freezing winds sought his destruction; the lighthouse was a pleasant outer fortification; but the absolute center of warmth, security, and supreme luxury on planet Earth was the ninety-eight-point-six-degree pocket situated between Maya’s calcium cannons inside her wool sweater. It was lined with shredded linen fluff he had stolen from her sewing basket, insulated by three layers of virgin fleece, and smelled faintly of lavender soap, cedar smoke, and dried sweetgrass. Under the unwritten Acadian Boreal Statutes, this territory was sovereign, non-negotiable, and defended by lethal tooth-and-claw eviction.
+Scar leaned into her knuckle with a prolonged, purring vibration that rattled through his small ribcage, but he refused to leave his perch. To Scar, the universe possessed a very clear structural hierarchy: outside was the frozen abyss where red hawks and freezing winds sought his destruction; the lighthouse was a pleasant outer fortification; but the absolute center of warmth, security, and supreme luxury on planet Earth was the ninety-eight-point-six-degree pocket situated in the warm hollow of Maya’s wool sweater against her chest. It was lined with shredded linen fluff he had stolen from her sewing basket, insulated by three layers of virgin fleece, and smelled faintly of lavender soap, cedar smoke, and dried sweetgrass. Under the unwritten Acadian Boreal Statutes, this territory was sovereign, non-negotiable, and defended by lethal tooth-and-claw eviction.
 
 Whenever Maya sat down to read or sew, Scar would emerge just far enough to survey the perimeter, seize whatever seed or nut was offered, drag it down into his woolen cave, and gnaw it with ferocious, muffled clicks while pressed against her sternum.
 
@@ -128,7 +128,7 @@ Twenty minutes later, they stepped out through the lower double doors of the lig
 
 Between them and the forest stood a pair of traditional bear-paw snowshoes, leaning against the cedar logs of the wood-shed. Mac had spent three weeks of November evenings carving the frames from seasoned white ash poles, steaming them over the copper wash-boiler on the galley stove to achieve the broad, oval recurve that could float a two-hundred-pound man over powder snow without sinking four inches. The webbing was genuine rawhide—unsplit cow-gut and deer babiche, soaked in warm water, woven into a tight, octagonal diamond mesh that sang like guitar strings when plucked, and sealed against wet slush with three coats of boiled linseed oil and melted pine pitch.
 
-The physics of the bear-paw frame was an ancient compromise of the boreal forest: thirty inches long by fourteen inches wide, lacking the trailing tail of the Huron pattern so that a hunter could pivot in place within a dense hemlock thicket without tangling the frame in deadfall branches. The balance point was set two inches behind the toe mortise, allowing the tail to drag lightly through the powder while the toe cleared the crust on every forward stride.
+The physics of the bear-paw frame was an ancient compromise of the boreal forest: thirty inches long by fourteen inches wide, lacking the trailing tail of the Huron pattern so that a hunter could pivot in place within a dense red spruce thicket without tangling the frame in deadfall branches. The balance point was set two inches behind the toe mortise, allowing the tail to drag lightly through the powder while the toe cleared the crust on every forward stride.
 
 Maya knelt on the packed snow, unbuckling the oiled harness straps. She slotted the toe of her heavy pac-boots into the leather mortise, pulled the heel strap snug around the rubber rand, and buckled the brass tongue into the third hole with the practised efficiency of someone who had done it fifty times. She stood up, planted her white ash staff in the snow to test her footing, and took two broad, sweeping steps forward.
 
@@ -144,15 +144,15 @@ The gray wolf didn't need a harness or webbing. His broad, fur-padded paws, equi
 
 They followed his track into the shelter of the timber.
 
-Inside the forest, the temperature felt immediately warmer. The dense canopy of mature red spruce, balsam fir, and hemlock had caught eighty percent of the snowfall on its drooping boughs, creating a cathedral of deep, emerald shade and muffled silence. Beneath the trees, the snow lay soft, powdery, and only eighteen inches deep. Every twenty paces, a faint shower of dry, glittering crystals fell from the branches above, drifting down like diamonds in the pale winter sunlight that lanced through the canopy.
+Inside the forest, the temperature felt immediately warmer. The dense canopy of mature red spruce, balsam fir, and red spruce had caught eighty percent of the snowfall on its drooping boughs, creating a cathedral of deep, emerald shade and muffled silence. Beneath the trees, the snow lay soft, powdery, and only eighteen inches deep. Every twenty paces, a faint shower of dry, glittering crystals fell from the branches above, drifting down like diamonds in the pale winter sunlight that lanced through the canopy.
 
 Maya moved behind Mac with steady, rhythmic precision. Her white ash staff rose and fell in time with her left foot, the iron spike biting into the frozen ground beneath the powder with a dull, reassuring *thunk*.
 
-"Look at the hemlocks," she whispered, pointing with the tip of her staff toward a grove of massive, three-hundred-year-old giants on the western slope of the ravine.
+"Look at the red spruces," she whispered, pointing with the tip of her staff toward a grove of massive, three-hundred-year-old giants on the western slope of the ravine.
 
-The base of each hemlock was surrounded by a wide, snow-free circle of red-brown needles. In the sheltered pockets beneath the lower boughs, small flocks of black-capped chickadees and boreal nuthatches were flitting between the cones, their cheerful *chick-a-dee-dee* calls cutting through the crystalline silence.
+The base of each red spruce was surrounded by a wide, snow-free circle of red-brown needles. In the sheltered pockets beneath the lower boughs, small flocks of black-capped chickadees and boreal nuthatches were flitting between the cones, their cheerful *chick-a-dee-dee* calls cutting through the crystalline silence.
 
-"A microclimate," Mac said quietly, pausing beside a massive gray trunk. "A mature hemlock canopy cuts wind velocity by ninety percent and holds the air temperature six degrees warmer than the open meadow. The deer know it. Look at the runway."
+"A microclimate," Mac said quietly, pausing beside a massive gray trunk. "A mature red spruce canopy cuts wind velocity by ninety percent and holds the air temperature six degrees warmer than the open meadow. The deer know it. Look at the runway."
 
 Crossing their path was a deeply rutted trench in the snow, beaten down by dozens of sharp hooves. Three white-tailed deer—a heavy doe and two half-grown yearlings—were standing sixty paces away in a thicket of striped maple, their large, brown eyes watching the two humans with calm, unhurried curiosity. They were browsing on the tender, green terminal twigs of the maple saplings, their thick, gray winter coats dusted with frost.
 
@@ -160,13 +160,13 @@ Nipn stopped ten paces ahead, his ears cocked, his tail low and motionless. He l
 
 Mac gave a very slight, slow shake of his head. "Not today, old friend. The root cellar is full. Let them winter."
 
-The wolf gave a single, soft huff through his nostrils, turned his back on the deer, and trotted onward toward the lip of the hemlock ravine. The deer watched him pass, their ears pivoting like radar dishes, but they did not run. In the deep cold, every ounce of metabolic energy was precious; unprovoked flight was a death sentence. Under the silent laws of *Netukulimk*, hunter and prey shared a quiet, watchful truce across the winter snow.
+The wolf gave a single, soft huff through his nostrils, turned his back on the deer, and trotted onward toward the lip of the red spruce ravine. The deer watched him pass, their ears pivoting like radar dishes, but they did not run. In the deep cold, every ounce of metabolic energy was precious; unprovoked flight was a death sentence. Under the silent laws of *Netukulimk*, hunter and prey shared a quiet, watchful truce across the winter snow.
 
 At the head of the ravine, where the limestone ledges formed a natural amphitheater sixty feet above a frozen spring, Mac slowed his pace.
 
 "There," he murmured, pointing with his mittened hand toward the base of an enormous, overturned white pine.
 
-The pine had fallen three decades ago, its massive root-ball—a disc of earth, stones, and tangled cedar roots twelve feet across—propped vertically against the limestone cliff. Over the autumn, the hollow space beneath the root-ball had been backfilled with four wagon-loads of dry hemlock needles, dead leaves, and shredded cedar bark. Now, the entire structure was buried beneath an eight-foot drift of pure white snow, forming an unbroken mound that resembled a miniature glacier.
+The pine had fallen three decades ago, its massive root-ball—a disc of earth, stones, and tangled cedar roots twelve feet across—propped vertically against the limestone cliff. Over the autumn, the hollow space beneath the root-ball had been backfilled with four wagon-loads of dry red spruce needles, dead leaves, and shredded cedar bark. Now, the entire structure was buried beneath an eight-foot drift of pure white snow, forming an unbroken mound that resembled a miniature glacier.
 
 Except for one detail.
 
@@ -288,7 +288,7 @@ She took them without a word, her hand curling around the cold iron links. Her a
 
 The winter dusk fell over the valley like a purple bruise.
 
-At four o’clock, the sun slipped behind the hemlock ridges, leaving the sky painted in streaks of incandescent violet, cold rose, and bruised charcoal. The temperature, which had hovered near thirty below at midday, dropped instantly into the minus-thirties, the air contracting with a high, thin whistling sound as the wind reversed, blowing out of the north down the frozen slot of the river gorge.
+At four o’clock, the sun slipped behind the red spruce ridges, leaving the sky painted in streaks of incandescent violet, cold rose, and bruised charcoal. The temperature, which had hovered near thirty below at midday, dropped instantly into the minus-thirties, the air contracting with a high, thin whistling sound as the wind reversed, blowing out of the north down the frozen slot of the river gorge.
 
 Mac stood fifty feet back from the rail trestle, crouched in the blue shadow of a massive granite boulder that formed the eastern abutment of the bridge.
 
@@ -312,7 +312,7 @@ The lead raider—a gaunt, skeletal man with sunken yellow eyes and teeth rotted
 
 He looked across the bridge span.
 
-In the gathering gloom, the Old Stone Light rose above the headland like an ivory monolith against the violet sky. The tiny plume of wood smoke curling from its chimney was gray, fragrant, and thick with the scent of burning birch. To eleven men who had eaten nothing but boiled leather and frozen hemlock bark for three weeks, that smoke was an hallucination of warmth, life, and meat that obliterated every shred of human caution.
+In the gathering gloom, the Old Stone Light rose above the headland like an ivory monolith against the violet sky. The tiny plume of wood smoke curling from its chimney was gray, fragrant, and thick with the scent of burning birch. To eleven men who had eaten nothing but boiled leather and frozen red spruce bark for three weeks, that smoke was an hallucination of warmth, life, and meat that obliterated every shred of human caution.
 
 "There," the lead man croaked, his voice cracking like dry kindling. "Look at it. The tower. They got fires going. They got corn."
 
@@ -320,7 +320,7 @@ In the gathering gloom, the Old Stone Light rose above the headland like an ivor
 
 The leader spat a mouthful of dark, bloody saliva onto the snow. He looked down into the gorge.
 
-Below the bridge deck, the frozen stream cut down through the hemlocks to the broad, terrifying expanse of the river flats. From above, the red river looked like an undulating, blood-colored highway—a desert of rafted ice pans and frozen silt ridges winding five miles south toward Shepody Bay.
+Below the bridge deck, the frozen stream cut down through the red spruces to the broad, terrifying expanse of the river flats. From above, the red river looked like an undulating, blood-colored highway—a desert of rafted ice pans and frozen silt ridges winding five miles south toward Shepody Bay.
 
 "We go down the creek bed," the leader rasped, pointing with his axe toward the river ice. "We cut across the flats to the cove below the lighthouse. The cliff on that side is stepped terraces. We climb the garden walls from the water and hit them through the lower doors before they know we’re out of the trees."
 
@@ -330,7 +330,7 @@ Below the bridge deck, the frozen stream cut down through the hemlocks to the br
 
 He didn't wait for an answer. Garret turned, scrambling down the steep, snow-choked embankment of the railway fill, sliding on his heels into the bed of the frozen brook.
 
-The other ten men followed him, their breath coming in ragged, whistling gasps as they slid into the shadowy hemlock ravine, dragging the heavy wooden box behind them.
+The other ten men followed him, their breath coming in ragged, whistling gasps as they slid into the shadowy red spruce ravine, dragging the heavy wooden box behind them.
 
 From his vantage point behind the granite boulder, Mac watched them descend.
 
@@ -426,7 +426,7 @@ He reached down with his right hand, gripped the collar of the first man’s coa
 
 Mac lowered the man until his boots touched the ice, then shoved him back five paces.
 
-"Pick up your dead partner," Mac commanded, pointing toward the rifleman lying on the crust. "Strip his coat. Strip his boots. Drag him five miles south to the open water at Mary’s Point. If you ever put a foot on this rail bed again, I will not waste an arrow on you. I will let Nipn hunt you down through the hemlocks until there is nothing left of you to bury."
+"Pick up your dead partner," Mac commanded, pointing toward the rifleman lying on the crust. "Strip his coat. Strip his boots. Drag him five miles south to the open water at Mary’s Point. If you ever put a foot on this rail bed again, I will not waste an arrow on you. I will let Nipn hunt you down through the red spruces until there is nothing left of you to bury."
 
 The two men didn't wait to be told twice.
 

@@ -62,7 +62,7 @@ Nipn, who had been inspecting a fresh vole tunnel beneath a tussock of wild thym
 
 The north slope of the ridge was a different world from the sunny, thyme-scented clearing of the cabin.
 
-Here, behind the massive granite outcrop that shielded the homestead from Fundy nor'easters, the land dropped forty feet into a deep, sheltered hollow shaded by a canopy of virgin hemlocks and yellow birches. The sunlight never penetrated directly to the forest floor; it filtered through a thousand green needles as cool, emerald gloom. The ground was cushioned by a six-inch mattress of damp, aromatic moss, polypody ferns, and decaying hemlock needles that smelled of cold stone and eternal autumn.
+Here, behind the massive granite outcrop that shielded the homestead from Fundy nor'easters, the land dropped forty feet into a deep, sheltered hollow shaded by a canopy of virgin red spruces and yellow birches. The sunlight never penetrated directly to the forest floor; it filtered through a thousand green needles as cool, emerald gloom. The ground was cushioned by a six-inch mattress of damp, aromatic moss, polypody ferns, and decaying spruce needles that smelled of cold stone and eternal autumn.
 
 Set squarely into the face of this natural sandstone terrace was a low, arched doorway that looked like the entrance to an ancient Celtic barrow.
 
@@ -98,7 +98,7 @@ Mac pulled a small tallow candle from a niche by the door, struck a spark from h
 
 The golden flame flickered, then stood straight and tall in the clean, draft-free air.
 
-"Look at the draft, Nipn," Mac noted, pointing with his calloused finger to the two four-inch ceramic pipes integrated into the ceiling masonry. "Two-pipe thermal siphon. The intake pipe drops down to the floor at the rear, drawing cool, oxygenated air from the deep hemlock shade. The exhaust pipe vents from the ceiling near the door, carrying away any ethylene gas produced by ripening fruit. No stagnation, no mold, and zero mechanical moving parts. Vitruvius described the same principle for storing Roman grain in the dry vaults of Campania."
+"Look at the draft, Nipn," Mac noted, pointing with his calloused finger to the two four-inch ceramic pipes integrated into the ceiling masonry. "Two-pipe thermal siphon. The intake pipe drops down to the floor at the rear, drawing cool, oxygenated air from the deep red spruce shade. The exhaust pipe vents from the ceiling near the door, carrying away any ethylene gas produced by ripening fruit. No stagnation, no mold, and zero mechanical moving parts. Vitruvius described the same principle for storing Roman grain in the dry vaults of Campania."
 
 Nipn walked across the floor of crushed beach gravel, sniffing the bottoms of the heavy wooden bins that lined the walls.
 
@@ -142,7 +142,7 @@ Nipn lay on the cool gravel floor near the door, his eyes closed, his breathing 
 
 He washed his hands and the brush in the sump drain, blowing out the tallow candle.
 
-As they stepped out of the cool vault into the humid green twilight of the north hemlock grove, Mac swung the heavy tamarack door shut, listening to the solid *THUNK* of the counterweighted latch falling home into its oak keeper.
+As they stepped out of the cool vault into the humid green twilight of the north balsam fir grove, Mac swung the heavy tamarack door shut, listening to the solid *THUNK* of the counterweighted latch falling home into its oak keeper.
 
 The food of the homestead was safe.
 
@@ -225,7 +225,7 @@ As the steel cooled from bright orange to dull cherry, Mac used the hot-cut hard
 
 He picked up the red-hot splitting wedge with the tongs, inspecting its geometry.
 
-It was eight inches long, two inches wide, tapering from a thick, blunt striking poll down to a keen, straight wedge face. Perfect for splitting straight-grained hemlock and rock maple without jamming.
+It was eight inches long, two inches wide, tapering from a thick, blunt striking poll down to a keen, straight wedge face. Perfect for splitting straight-grained red spruce and rock maple without jamming.
 
 Now came the critical alchemy: the heat treatment.
 
@@ -351,7 +351,7 @@ People down in the valley—if they ever discovered this tower—might assume he
 
 Mac had been collecting these books for forty years, long before the first transformer blew, long before the supply chains fractured, and long before the world forgot how to live without a lithium battery.
 
-Throughout his entire adult career as an archivist and paleographer in Halifax, Edinburgh, and Montreal, while his academic colleagues were busy discarding physical paper to celebrate the dawn of the digitized "paperless office," Mac had used his modest salary to rescue what the modern world called obsolete. He had haunted estate sales in old Nova Scotia sea-captain mansions, bid on forgotten probate lots in Boston, climbed into the damp attics of rural New Brunswick parish churches, and salvaged crates of 17th-century folios from institutional basements where administrators were dumping leather-bound history into recycling bins to make room for server racks.
+Throughout his entire adult career as an archivist and paleographer in Halifax, Edinburgh, and Montreal, while his academic colleagues were busy discarding physical paper to celebrate the dawn of the digitized "paperless office," Mac had used his modest salary to rescue what the modern world called obsolete. He had haunted estate sales in old Nova Scotia sea-captain mansions, bid on forgotten probate lots in Boston, climbed into the damp attics of rural New Brunswick vestries and meeting houses, and salvaged crates of 17th-century folios from institutional basements where administrators were dumping leather-bound history into recycling bins to make room for server racks.
 
 He had foreseen no romantic apocalypse; he had simply understood materials.
 
@@ -498,7 +498,7 @@ The sky was clear, but far to the southwest, beyond Cape Enrage, the very edge o
 
 "Aye," Mac nodded. "We’ll secure the cabin and retreat to the lighthouse. Thank you for the barometric reading, Ursus."
 
-The bear gave a deep, appreciative grunt, turned his massive black bulk, and lumbered into the forest, disappearing into the shadows of the hemlocks with the effortless silence that only four-hundred-pound predators can achieve.
+The bear gave a deep, appreciative grunt, turned his massive black bulk, and lumbered into the forest, disappearing into the shadows of the red spruces with the effortless silence that only four-hundred-pound predators can achieve.
 
 Mac picked up his two cedar pails of salt. They weighed sixty pounds each, but he carried them up the steep sandstone trail with the easy, swinging stride of a postman carrying a bundle of letters.
 
@@ -606,7 +606,7 @@ Scar stopped chewing.
 
 His whiskers twitched with an expression of profound, transcendental wonder.
 
-*Soft,* the squirrel’s mind projected, the thought-form glowing with sudden, obsessive architectural lust. *Warm gray fur with no skin. Soft like rabbit down. Warm like a dried moss hole. Better than dry spruce bark. Better than hemlock feathers.*
+*Soft,* the squirrel’s mind projected, the thought-form glowing with sudden, obsessive architectural lust. *Warm gray fur with no skin. Soft like rabbit down. Warm like a dried moss hole. Better than dry spruce bark. Better than red spruce feathers.*
 
 Mac followed the squirrel’s gaze to the laundry line and let out a soft, dry chuckle.
 

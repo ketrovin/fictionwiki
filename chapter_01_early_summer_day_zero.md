@@ -28,7 +28,7 @@ Mac shifted his weight, testing the morning wind. It blew out of the southwest, 
 
 He started down the bluff path.
 
-The trail to the tidal mud was not an open scar on the hillside. Over ten years, Mac had carved it with a hand adze and a round-nosed spade, cutting through the red sandstone shelf in a series of shallow zigzags masked beneath the drooping boughs of ancient hemlocks. From the river, even a man with a naval glass could stare directly at the bluff and see nothing but an unbroken skirt of coastal forest kissing the high-water wrack line.
+The trail to the tidal mud was not an open scar on the hillside. Over ten years, Mac had carved it with a hand adze and a round-nosed spade, cutting through the red sandstone shelf in a series of shallow zigzags masked beneath the drooping boughs of ancient red spruces. From the river, even a man with a naval glass could stare directly at the bluff and see nothing but an unbroken skirt of coastal forest kissing the high-water wrack line.
 
 As they reached the red mud apron, the smell changed. It was the ancient, sharp perfume of Fundy: iron, decaying eelgrass, pulverized shale, and the faint, sweet trace of freshwater seeping from hidden hillside springs. The red silt was warm under the early June sun, its surface slick as wet liver. To a stranger, walking on it was suicide; the top three inches were slick grease, but below that lay a thixotropic colloidal slurry that liquified under vibration and set like quick-drying cement the moment motion ceased.
 
@@ -50,7 +50,7 @@ The bear was broad across the rump as a hay bale, with a coat the color of wet c
 
 When Mac and Nipn stepped onto the rocks, the bear didn't startle. He didn't drop to all fours or pop his teeth in aggression. He simply swiveled his massive, dish-faced head, blinking small, dark eyes with the weary patience of an old man waiting for the bank doors to open.
 
-*Two-leg with the salt hands,* the bear’s presence rolled across Mac’s consciousness. It was a heavy, slow, rumbling thought-form, tasting of mashed wild strawberries, rotten hemlock grubs, cold river water, and an enormous, unyielding belly that considered sixty thousand calories a day to be a modest baseline. *The shiny ones have fins today. The big water dropped them in the pen. I took three. They were slippery.*
+*Two-leg with the salt hands,* the bear’s presence rolled across Mac’s consciousness. It was a heavy, slow, rumbling thought-form, tasting of mashed wild strawberries, rotten red spruce grubs, cold river water, and an enormous, unyielding belly that considered sixty thousand calories a day to be a modest baseline. *The shiny ones have fins today. The big water dropped them in the pen. I took three. They were slippery.*
 
 "Only three, Ursus?" Mac spoke aloud, his tone conversational and calm. "You're demonstrating uncharacteristic monastic restraint. Cato the Elder would be proud of your civic moderation."
 
@@ -64,27 +64,27 @@ The water came up to mid-calf, icy cold from the Bay's bottom currents. He carri
 
 As Mac approached the wooden race, he saw the problem.
 
-A dead hemlock root ball, ripped from some eroded upstream bank twenty miles away during the spring freshets, had drifted down on the night tide. It was four feet thick, waterlogged to the density of wet pig iron, and its gnarled, clay-packed roots were jammed solidly between two of the primary tamarack guide posts, warping the hazel hurdles and letting a steady stream of escaping flounder slip through the gap.
+A dead red spruce root ball, ripped from some eroded upstream bank twenty miles away during the spring freshets, had drifted down on the night tide. It was four feet thick, waterlogged to the density of wet pig iron, and its gnarled, clay-packed roots were jammed solidly between two of the primary tamarack guide posts, warping the hazel hurdles and letting a steady stream of escaping flounder slip through the gap.
 
-The timber was easily eight hundred pounds. Waterlogged spruce or hemlock that had soaked in salt brine for a month weighed twice what green wood weighed on land. A crew of four men with peaveys, rope blocks, and a team of oxen would have spent twenty minutes swearing and sweating to lever it out of the sucking clay.
+The timber was easily eight hundred pounds. Waterlogged red spruce or tamarack that had soaked in salt brine for a month weighed twice what green wood weighed on land. A crew of four men with peaveys, rope blocks, and a team of oxen would have spent twenty minutes swearing and sweating to lever it out of the sucking clay.
 
 Mac set down his ash basket. He rolled his homespun sleeves past his elbows, revealing forearms as thick as stovepipes, corded with brown tendon and hair bleached pale by ten summers of maritime sun.
 
 He did not make theatrical incantations. He did not tighten a weightlifter's belt. He did not breathe through his nose in rapid, theatrical bursts.
 
-He merely looked at the hemlock root, decided that it was in his way, and reached down into the red water.
+He merely looked at the spruce root, decided that it was in his way, and reached down into the red water.
 
 His broad hands closed around two gnarled root knobs. His boots settled an inch deeper into the gravel seam beneath the mud, establishing an immovable foundation against the earth. And then, with the casual, measured rhythm of a man picking up an empty watering can to move it off the porch steps, Mac straightened his spine.
 
 The sucking sound of the mud was a loud, wet *SCHWOCK*.
 
-The eight-hundred-pound hemlock log rose out of the brine, water and red silt pouring from its tangled roots in a heavy brown curtain. There was no shaking in Mac's shoulders. No veins bulged along his temples. His breathing remained long, steady, and unhurried. He turned his hips forty degrees, swung the dripping mass clear of the tamarack posts, and laid it gently on the dry sandstone ledge six feet above the water line, setting it down so smoothly that the shale beneath it didn't even click.
+The eight-hundred-pound red spruce log rose out of the brine, water and red silt pouring from its tangled roots in a heavy brown curtain. There was no shaking in Mac's shoulders. No veins bulged along his temples. His breathing remained long, steady, and unhurried. He turned his hips forty degrees, swung the dripping mass clear of the tamarack posts, and laid it gently on the dry sandstone ledge six feet above the water line, setting it down so smoothly that the shale beneath it didn't even click.
 
 The bear stopped chewing on a half-eaten shad. His small ears twitched forward, watching the log settle.
 
 *Heavy log,* the bear thought, his mental tone shifting with a slow, respectful flicker of caution. *Too heavy for claws. Good leverage, two-leg.*
 
-Mac wiped a smear of red clay from the back of his wrist onto his trousers. "Leverage, Ursus. It’s all about fulcrums, center of gravity, and an honest appreciation for Archimedes. 'Give me a place to stand and with a lever I will move the whole world.' Though he was speaking of mechanical advantage, not hemlock roots. Still, the principle holds."
+Mac wiped a smear of red clay from the back of his wrist onto his trousers. "Leverage, Ursus. It’s all about fulcrums, center of gravity, and an honest appreciation for Archimedes. 'Give me a place to stand and with a lever I will move the whole world.' Though he was speaking of mechanical advantage, not spruce roots. Still, the principle holds."
 
 Nipn gave a soft, dry snort from the berm. *You didn't use a lever. You just lifted it.*
 
@@ -180,7 +180,7 @@ The ground had been cleared of surface boulders a decade ago, but Mac had not st
 
 To the right, nestled against the leeward slope of a natural granite outcrop that blocked the brutal northwest winter winds, stood the two-room cabin.
 
-It was low-slung, built of heavy squared hemlock logs clad in hand-split cedar shakes that had weathered to the soft, silvery gray of a gull's wing. The roof was pitched steeply at fifty degrees to shed heavy Maritime snow loads, covered in double-lapped split cedar shingles treated with a mixture of hot pine tar, boiled linseed oil, and wood ash.
+It was low-slung, built of heavy squared tamarack logs clad in hand-split cedar shakes that had weathered to the soft, silvery gray of a gull's wing. The roof was pitched steeply at fifty degrees to shed heavy Maritime snow loads, covered in double-lapped split cedar shingles treated with a mixture of hot pine tar, boiled linseed oil, and wood ash.
 
 A massive stone chimney, built from three thousand fieldstones hauled up from the river ravines, rose through the center of the cabin. But there was no smoke drifting from the chimney pot.
 
@@ -343,7 +343,7 @@ When Mac stepped through the thick cedar door, the first sensation that struck t
 
 It was not a modern, drafty cottage thrown together with two-by-fours and fiberglass insulation.
 
-The walls were solid eight-inch squared hemlock timbers, hand-hewn with a broadaxe and joined at the corners with compound half-dovetails that locked together tighter the more the wood settled. Every seam between the timbers was chinked with a traditional Maritime mortar of slaked lime, fine river sand, dried horsehair, and chopped sphagnum moss. It was a breathable, flexible barrier that sealed out the brutal Fundy gales while allowing moisture to escape, preventing the interior rot that plagued modern vapor-barrier construction.
+The walls were solid eight-inch squared red spruce timbers, hand-hewn with a broadaxe and joined at the corners with compound half-dovetails that locked together tighter the more the wood settled. Every seam between the timbers was chinked with a traditional Maritime mortar of slaked lime, fine river sand, dried horsehair, and chopped sphagnum moss. It was a breathable, flexible barrier that sealed out the brutal Fundy gales while allowing moisture to escape, preventing the interior rot that plagued modern vapor-barrier construction.
 
 The cabin was divided into two distinct chambers by a central structural wall of red clay brick and sandstone.
 
@@ -359,7 +359,7 @@ From the firebox, the exhaust gases did not shoot straight out the roof. They we
 
 By the time the exhaust gases traveled forty feet through the stone thermal battery, every calorie of heat had been absorbed by the masonry.
 
-The stone bench stayed at a steady seventy-five degrees Fahrenheit for thirty-six hours after the fire was extinguished. And outside, the smoke—having surrendered its heat and dropped its soot in the underground baffle—vented through a low stone register buried in a grove of hemlocks twenty yards downhill, emerging as a cool, transparent vapor that looked identical to the natural morning ground fog.
+The stone bench stayed at a steady seventy-five degrees Fahrenheit for thirty-six hours after the fire was extinguished. And outside, the smoke—having surrendered its heat and dropped its soot in the underground baffle—vented through a low stone register buried in a grove of red spruces twenty yards downhill, emerging as a cool, transparent vapor that looked identical to the natural morning ground fog.
 
 No telltale column of white woodsmoke rising above the trees to announce to every wandering bandit that a kitchen was active.
 
@@ -437,7 +437,7 @@ When the plate was clean, Mac wiped the iron skillet with a dry handful of clean
 
 The sun was high now, burning off the last wisps of river fog.
 
-To the south, across the rolling waves of black spruce and hemlock, the headland rose sharply toward the sky.
+To the south, across the rolling waves of black spruce and balsam fir, the headland rose sharply toward the sky.
 
 And atop that headland, gleaming like a white tooth against the blue horizon of Shepody Bay, stood the stone lighthouse.
 
@@ -526,7 +526,7 @@ Mac paused on the forty-second granite step. His large, scarred fingers trailed 
 
 He pulled the volume from the shelf, turning it over in his hands.
 
-"Look at this, Nipn," Mac murmured, opening to a well-creased page. "The Samuel Vimes Boots Theory of Socioeconomic Unfairness. The reason that the rich were so rich was because they managed to spend less money. Take boots, for example. He earned thirty-eight dollars a month plus allowances. A really good pair of leather boots cost fifty dollars. But an affordable pair of boots, which were sort of okay for a season or two and then leaked like hell when the cardboard gave out, cost about ten dollars."
+"Look at this, Nipn," Mac murmured, opening to a well-creased page. "The Samuel Vimes Boots Theory of Socioeconomic Unfairness. The reason that the rich were so rich was because they managed to spend less money. Take boots, for example. He earned thirty-eight dollars a month plus allowances. A really good pair of leather boots cost fifty dollars. But an affordable pair of boots, which were sort of okay for a season or two and then leaked like a sieve when the cardboard gave out, cost about ten dollars."
 
 Nipn sat two steps down, his gray chin resting against Mac’s knee, his amber eyes blinking slowly. *Boots are stupid. Leather tastes good, but paws don't leak. Why do humans put dead cow skin on their feet and then complain about water?*
 
@@ -610,15 +610,15 @@ They were the survivors of the Moncton suburbs—men who had spent their previou
 
 They had spent four months eating canned corn, roadkill, and boiled dandelions. When they looked down from the rail corridor and saw the woven brush hurdles of the weir in the red mud, they didn't see an ecosystem or an indigenous fishing technology; they saw free meat.
 
-"Look at that," the man with the shotgun rasped, his voice cracked with thirst. His name was Vance; his teeth were yellow, and his hands trembled slightly against the rusted steel receiver. "Fish. Dozens of 'em trapped in that puddle. We smash them hurdles, fill the sacks, and we're good for a week."
+"Look at that," the man with the shotgun rasped, his voice cracked with thirst. His name was Gault; his teeth were yellow, and his hands trembled slightly against the rusted steel receiver. "Fish. Dozens of 'em trapped in that puddle. We smash them hurdles, fill the sacks, and we're good for a week."
 
-"Who built it?" asked the younger one, a kid of barely nineteen holding a three-foot steel pry bar. He kept glancing nervously at the dense spruce tree line. "Looks too neat. Somebody’s living here, Vance. Somebody who knows how to make things."
+"Who built it?" asked the younger one, a kid of barely nineteen holding a three-foot steel pry bar. He kept glancing nervously at the dense spruce tree line. "Looks too neat. Somebody’s living here, Gault. Somebody who knows how to make things."
 
-"Ain't nobody living here," Vance snarled, spitting into the red mud. "The whole river is dead. Look at the mud—ain't no boot prints."
+"Ain't nobody living here," Gault snarled, spitting into the red mud. "The whole river is dead. Look at the mud—ain't no boot prints."
 
 "There are boot prints," the third man muttered, pointing with a rusted tire iron toward the gravel seam. "Big ones. Double-soled. Fresh."
 
-Before Vance could reply, a voice spoke from the shadow of the hemlock bluff.
+Before Gault could reply, a voice spoke from the shadow of the red spruce bluff.
 
 "The prints are fresh because I walked there forty minutes ago," the voice said.
 
@@ -630,17 +630,17 @@ Mac was standing twenty paces away, on a flat sandstone shelf six feet above the
 
 He had not made a sound coming down the bluff trail. He carried his six-foot ash walking staff in his left hand, resting lightly on the shale like a shepherd's crook. His large, calloused hands were bare; his shirt sleeves were rolled to the elbows; his eyes—cool, pale gray-blue—held them in an unblinking, calm gaze that felt less like human eye contact and more like being targeted by an artillery battery.
 
-Beside him, emerging from the dark undergrowth of the hemlocks like a silver ghost, stepped Nipn.
+Beside him, emerging from the dark undergrowth of the red spruces like a silver ghost, stepped Nipn.
 
-The wolf did not snarl. He did not bark. He simply stood at Mac’s left hip, his deep chest broad as a barrel, his amber eyes fixed directly on Vance’s throat with the calm, predatory certainty of a creature that killed eighty-pound deer for a living.
+The wolf did not snarl. He did not bark. He simply stood at Mac’s left hip, his deep chest broad as a barrel, his amber eyes fixed directly on Gault’s throat with the calm, predatory certainty of a creature that killed eighty-pound deer for a living.
 
-The nineteen-year-old kid went white as paper. "Bloody hell... Vance... that’s a wolf. That’s a goddamn timber wolf."
+The nineteen-year-old kid went white as paper. "By the salt and the shale... Gault... that’s a wolf. That’s a goddamn timber wolf."
 
-Vance’s panic took the form of violent, nervous aggression. His trembling hands snapped the twelve-gauge shotgun closed with a loud, metallic *CLACK*.
+Gault’s panic took the form of violent, nervous aggression. His trembling hands snapped the twelve-gauge shotgun closed with a loud, metallic *CLACK*.
 
 He swung the barrel toward Mac’s chest.
 
-"Back off, old man!" Vance screamed, his voice pitching into a hysterical squeak. "Back the hell off! This is public river! The fish belong to whoever takes 'em! You step toward me and I'll blow a hole in you the size of a dinner plate!"
+"Back off, old man!" Gault screamed, his voice pitching into a hysterical squeak. "Back away! Back off! This is public river! The fish belong to whoever takes 'em! You step toward me and I'll blow a hole in you the size of a dinner plate!"
 
 Mac did not flinch. His pupils did not dilate.
 
@@ -648,13 +648,13 @@ He looked down the rusted, pitted barrel of the shotgun with the mild, dispassio
 
 "The Petitcodiac is an ancient estuary," Mac said, his tone conversational and terrifyingly even. "Under common law, tidal mud is indeed *res communis*—the common property of all citizens. However, under the older *Netukulimk* understanding of the Mi'kmaq, and under basic Acadian frontier precedent, the weir was constructed with private labor, using private timber, on land deeded under the Crown since 1884. You did not build the hurdles. You did not clear the silt. You are not harvesting; you are attempting to pillage."
 
-"I don't give a damn about Latin!" Vance shrieked, his knuckle whitening against the shotgun trigger. "I'm taking the fish!"
+"I don't give a damn about Latin!" Gault shrieked, his knuckle whitening against the shotgun trigger. "I'm taking the fish!"
 
 What happened next was not an anime battle. There was no theatrical leap, no supersonic blur, no magical glow.
 
 It was simply the terrifying, instantaneous application of limitless, sovereign force.
 
-Vance began to pull the trigger.
+Gault began to pull the trigger.
 
 In the fraction of a millisecond between the sear releasing and the hammer striking the firing pin, Mac took one single step.
 
@@ -662,7 +662,7 @@ His boot did not slip on the shale. He closed twenty feet of distance before the
 
 His left hand shot out.
 
-He did not grab Vance’s arm. He caught the steel barrel of the twelve-gauge shotgun six inches from the muzzle.
+He did not grab Gault’s arm. He caught the steel barrel of the twelve-gauge shotgun six inches from the muzzle.
 
 *BOOM.*
 
@@ -676,9 +676,9 @@ Against Mac’s palm, the blast produced a dull, muffled *THWUMP*.
 
 The expanding gases and four hundred lead pellets hit his skin like a handful of dry peas tossed against an iron safe. His palm did not tear. His skin did not blister. The skin of a *Kinap* was not armor plate; it was simply an absolute, metaphysical boundary that refused to yield to mechanical violence.
 
-Vance’s jaw dropped in sheer, paralyzed horror.
+Gault’s jaw dropped in sheer, paralyzed horror.
 
-Mac did not raise his voice. He looked down at Vance with calm, sad blue eyes.
+Mac did not raise his voice. He looked down at Gault with calm, sad blue eyes.
 
 "You really shouldn't have done that," Mac said softly.
 
@@ -726,13 +726,13 @@ Mac raised one hand.
 
 The gesture was small, but both the wolf and the bear halted instantly.
 
-Mac looked down at Vance, who was crawling backward through the red mud, clutching his fractured wrist, his eyes wide with the mindless terror of an animal that had just realized it was staring into the mouth of a volcano.
+Mac looked down at Gault, who was crawling backward through the red mud, clutching his fractured wrist, his eyes wide with the mindless terror of an animal that had just realized it was staring into the mouth of a volcano.
 
 "Stand up," Mac commanded.
 
 The voice was not loud, but it held the sovereign authority of the tide itself.
 
-Vance scrambled to his feet, slipping twice in the silt before finding purchase on the gravel seam. The injured scavenger dragged himself up, sobbing quietly, while the kid stood shivering in place.
+Gault scrambled to his feet, slipping twice in the silt before finding purchase on the gravel seam. The injured scavenger dragged himself up, sobbing quietly, while the kid stood shivering in place.
 
 "You came for fish," Mac said, his eyes scanning them one by one.
 
@@ -744,7 +744,7 @@ The three scavengers stared at the fish, then at Mac, completely incapable of pr
 
 "Take them," Mac said.
 
-"W-what?" Vance stammered, blood dripping from his lip where he had bitten it in terror.
+"W-what?" Gault stammered, blood dripping from his lip where he had bitten it in terror.
 
 "You are hungry," Mac said, his tone measured and grave. "A hungry man makes poor decisions; a starving man ceases to be human. Under *Netukulimk*, no one who approaches a hearth in genuine hunger is turned away with an empty belly. You have three flounder and four cattail stalks. Boil the fish. Peel the stalks and eat the inner white core—it will keep your guts from knotting up."
 

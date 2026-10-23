@@ -553,7 +553,7 @@ Her white ash staff stood propped securely in the corner between the stove and t
 
 Inside her shirt, nestled in his favorite fleece-lined pocket between the warm curve of her breasts, Scar was fast asleep. His little russet paws were curled tight beneath his chin, his dark nose twitching occasionally as he dreamed of an endless mountain of roasted sunflower seeds. 
 
-*Calcium cannons,* Maya thought with a quiet, private smile that tugged at the corner of her lips. The absurd, cynical phrase felt different now. It wasn't an iron shield to hide her trauma anymore; it was just a warm, ridiculous truth of her life on this river. She was a woman who had survived the end of the world, who had held the high glass against fifty-caliber machine guns, and who was currently providing ninety-eight-point-six-degree central heating to an eight-ounce red squirrel with an attitude problem.
+*Heavy artillery,* Maya thought with a quiet, private smile that tugged at the corner of her lips. The absurd, cynical phrase felt different now. It wasn't an iron shield to hide her trauma anymore; it was just a warm, ridiculous truth of her life on this river. She was a woman who had survived the end of the world, who had held the high glass against fifty-caliber machine guns, and who was currently providing ninety-eight-point-six-degree central heating to an eight-ounce red squirrel with an attitude problem.
 
 Mac sat beside her on the bench.
 

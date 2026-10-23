@@ -8,7 +8,7 @@ The desire to pull one’s own weight is a stubborn, burning fire that no amount
 
 By the ninth morning since her rescue from the culvert, Maya was done being a patient.
 
-She woke before dawn in the quiet sleeping alcove of the hemlock cabin. Outside, the world was wrapped in a thick, cool blanket of Fundy river fog—a silent, gray pea-souper that rolled off the salt mud, blotting out the high black spruces and muffling every sound until the entire valley felt like a private room carved from white cotton.
+She woke before dawn in the quiet sleeping alcove of the cedar cabin. Outside, the world was wrapped in a thick, cool blanket of Fundy river fog—a silent, gray pea-souper that rolled off the salt mud, blotting out the high black spruces and muffling every sound until the entire valley felt like a private room carved from white cotton.
 
 In the warmth of the alcove, Scar was still fast asleep.
 
@@ -38,7 +38,7 @@ Maya reached out, gripping the smooth ash handle firmly in her right hand.
 
 She stood.
 
-She planted her sound right boot on the rag rug, took a slow, deep breath through her nose, and gingerly brought her left foot down onto the hemlock floorboards.
+She planted her sound right boot on the rag rug, took a slow, deep breath through her nose, and gingerly brought her left foot down onto the split yellow birch floorboards.
 
 She shifted twenty pounds of her body weight onto the healing ankle.
 
@@ -86,7 +86,7 @@ The morning air was cold, damp, and tasted intensely of salt and wet spruce need
 
 Nipn was nowhere in sight—likely running the outer perimeter along the mud bluffs, checking the low-tide weir for stray flounder.
 
-Maya turned north, planting her sound boot and her ash cane into the crushed clam-shells of the path, slipping through the gap in the living willow fence, and climbing the gentle gravel embankment up to the main railway bed.
+Maya turned north, planting her sound boot and her ash cane into the crushed clam-sthe ditchs of the path, slipping through the gap in the living willow fence, and climbing the gentle gravel embankment up to the main railway bed.
 
 The twin ribbons of ninety-pound continuously welded steel rails cut through the gray river fog like two straight, dark iron roads disappearing into the northern woods.
 
@@ -122,7 +122,7 @@ Her healing fibula throbbed with a dull, rhythmic pulse, but it held firm. Her b
 
 At the three-quarter-mile mark, the track curved gently to the northwest, following the rim of the deep sandstone gorge carved by Stony Creek.
 
-Through the thinning mist, the concrete loading ramp of the Hillsborough Siding Depot materialized out of the hemlocks:
+Through the thinning mist, the concrete loading ramp of the Hillsborough Siding Depot materialized out of the red spruces:
 
 A low, weed-choked platform of cracked reinforced concrete, bordered by an overgrown spur siding that peeled off the main line. Resting on the rusty spur rails sat an old yellow CN caboose with shattered windows, and behind it, a heavy, dark-red forty-foot steel boxcar, its sliding side door rusted open about three feet.
 
@@ -176,7 +176,7 @@ They were coming from the north along the railway right-of-way, their knobby dir
 
 Maya’s breath locked in her throat.
 
-*Vance’s scouts.*
+*Thorne’s scouts.*
 
 The Clacks signal from Auntie Elizabeth flashed through her mind like a red-hot branding iron: *Three days ago raider patrol from Salisbury spotted on Route 106... probing old culverts with motorbikes... they seek the woman who fled.*
 
@@ -208,7 +208,7 @@ The rear knobby tire locked up, slewing sideways across the crushed granite in a
 
 He kicked the bike into neutral, blipped the throttle with a loud, tearing *BRAAAP-BAP-BAP*, and pointed a gloved finger at her.
 
-"WELL, LOOK AT WHAT JUST CAME OUT OF THE BUSHES!" the lead rider screamed over the engine noise, his voice raw with sadistic triumph. "BOYS! SHUT 'EM DOWN! IT’S VANCE’S LITTLE GREASE-MONKEY!"
+"WELL, LOOK AT WHAT JUST CAME OUT OF THE BUSHES!" the lead rider screamed over the engine noise, his voice raw with sadistic triumph. "BOYS! SHUT 'EM DOWN! IT’S THORNE’S LITTLE GREASE-MONKEY!"
 
 The other two bikes slid to a halt, boxing in the spur track, cutting off her retreat back to the main line.
 
@@ -230,7 +230,7 @@ She had the high ground of the concrete platform. She had iron at her back. And 
 
 Inside her flannel shirt, Scar was in a state of absolute, apocalyptic terror.
 
-The squirrel was shivering so violently that Maya felt his tiny ribs vibrating against her own chest. He had burrowed down as deep as he could go between her calcium cannons, his head wedged behind the left cup of her bra, but his black, beady eyes were peeking out through the open fourth button, dilated with wild, feral fury.
+The squirrel was shivering so violently that Maya felt his tiny ribs vibrating against her own chest. He had burrowed down as deep as he could go in the warm hollow of her shirt, his head wedged behind the left cup of her bra, but his black, beady eyes were peeking out through the open fourth button, dilated with wild, feral fury.
 
 *THE RUST-VERMIN!* Scar chattered in her mind, his mental voice a frantic shriek. *THEY SMELL OF BURNT BLACK WATER AND DEAD WEASELS! HIT THEM WITH THE HEAVY ASH! CRACK THEIR CRANIUMS!*
 
@@ -244,7 +244,7 @@ The lead rider—the rat-tailed man with the scarred lip—stepped forward onto 
 
 The second man was short, stocky, and built like a fire hydrant, carrying a rusty four-foot tire iron and a bundle of heavy nylon zip-ties tucked into his belt. The third, younger and wiry, unslung a battered single-barrel twelve-gauge shotgun from his shoulder, cradling it in the crook of his arm with a greasy, leering smirk.
 
-"Vance is real pissed off at you, Maya," the rat-tailed leader sneered, stepping closer, his bloodshot eyes raking over her form. "You cost him sixteen gallons of fuel and two weeks of machine-shop downtime when you broke through the wire in Sussex. He promised fifty gallons of high-test gasoline to whoever brings you back."
+"Thorne is real pissed off at you, Maya," the rat-tailed leader sneered, stepping closer, his bloodshot eyes raking over her form. "You cost him sixteen gallons of fuel and two weeks of machine-shop downtime when you broke through the wire in Sussex. He promised fifty gallons of high-test gasoline to whoever brings you back."
 
 He stopped five paces away, his gaze dropping from her face to her unbuttoned green flannel shirt.
 
@@ -258,11 +258,11 @@ A filthy, mocking laugh tore out of his scarred mouth.
 
 The stocky man with the tire iron let out a guttural snort, stepping up beside the leader.
 
-"Got a sharp tongue on her, Cody," the stocky man grunted. "Vance said we had to bring her back alive. He didn't say she had to be in one piece. And he sure as hell didn't say we couldn't break her in before we load her on the rack."
+"Got a sharp tongue on her, Cody," the stocky man grunted. "Thorne said we had to bring her back alive. He didn't say she had to be in one piece. And he sure as the ditch didn't say we couldn't break her in before we load her on the rack."
 
 Cody, the leader, grinned—a slow, predatory, sickening smile that revealed rotten, brown-stained incisors.
 
-"Vance won't know the difference," Cody murmured, shifting the pipe to his left hand, stepping two paces closer, his right hand reaching out toward her collar. "Come here, girl. Drop the stick and play nice, and maybe we won't drag you through the briars behind the bikes."
+"Thorne won't know the difference," Cody murmured, shifting the pipe to his left hand, stepping two paces closer, his right hand reaching out toward her collar. "Come here, girl. Drop the stick and play nice, and maybe we won't drag you through the briars behind the bikes."
 
 Maya didn't drop the stick.
 
@@ -367,7 +367,7 @@ The air in the clearing seemed to drop five degrees in a single heartbeat.
 
 The raider pinning Maya against the iron door froze, his dirty fingers still clamped around her throat, his bloodshot eyes widening in sudden, instinctual alarm.
 
-"What the hell is—"
+"What in the name of the salt is—"
 
 Above them, thirty feet up the sheer vertical sandstone face of the railway cutting, the spruce trees tore apart.
 
@@ -465,15 +465,15 @@ Mac tilted his head, looking down at the struggling, rat-tailed man with cold, s
 
 "You brought a nine-inch blade into my valley," Mac said softly, his deep baritone carrying the unhurried weight of an ancient oak tree. "To steal a woman under the protection of my hearth."
 
-"LET GO OF ME!" Cody screamed, thrashing his legs, spitting blood from his split lip, trying with his left hand to claw at Mac’s eyes. "VANCE WILL FLAY YOU ALIVE! VANCE HAS FORTY RIFLES IN SUSSEX!"
+"LET GO OF ME!" Cody screamed, thrashing his legs, spitting blood from his split lip, trying with his left hand to claw at Mac’s eyes. "THORNE WILL FLAY YOU ALIVE! THORNE HAS FORTY RIFLES IN SUSSEX!"
 
-"Vance is thirty miles away," Mac replied, his voice terrifyingly calm. "And you are standing in my woods."
+"Thorne is thirty miles away," Mac replied, his voice terrifyingly calm. "And you are standing in my woods."
 
 Mac applied two degrees of rotational torque to Cody's wrist.
 
 *CRACK-SNAP.*
 
-The distal radius and ulna of Cody's forearm shattered like dry hemlock kindling.
+The distal radius and ulna of Cody's forearm shattered like dry spruce kindling.
 
 The bowie knife slipped from his paralyzed fingers, clattering harmlessly onto the granite ballast.
 
@@ -513,7 +513,7 @@ The twelve-gauge shotgun slipped from his trembling hands, falling into the wet 
 
 The boy collapsed onto his knees in the dirt, burying his face in his bloody hands, sobbing uncontrollably:
 
-"Don't kill me... please... don't let the wolf eat me... I was just following Cody... Vance said he'd shoot my brother if I didn't ride..."
+"Don't kill me... please... don't let the wolf eat me... I was just following Cody... Thorne said he'd shoot my brother if I didn't ride..."
 
 The clearing went dead silent, broken only by the boy's ragged sobs, the groaning of the man pinned against the maintenance shed, and the distant, eternal roar of Stony Creek rushing through the gorge below.
 
@@ -687,17 +687,17 @@ Mac tossed the bent shotgun into the ditch with a heavy *clatter*.
 
 He looked down at Cody.
 
-"What is Vance’s strength in Sussex?" Mac asked.
+"What is Thorne’s strength in Sussex?" Mac asked.
 
 His voice wasn't loud, but it held that deep, resonant, subterranean timbre that made the gravel beneath Cody's knees vibrate.
 
 Cody swallowed hard, his voice cracking into a ragged whisper.
 
-"T-thirty-five men," Cody stammered, terrified that any hesitation would bring the wolf's fangs into his jugular. "Maybe forty. But half of 'em are sick with the river fever, and the fuel is almost gone. We only had two drums of kerosene left at the highway truck stop. That’s why Vance sent us down the tracks... he heard rumors that the old Acadian dikes down on the Petitcodiac had salt pans and dried fish... he was planning to bring two flatbed trucks down Route 106 before the harvest..."
+"T-thirty-five men," Cody stammered, terrified that any hesitation would bring the wolf's fangs into his jugular. "Maybe forty. But half of 'em are sick with the river fever, and the fuel is almost gone. We only had two drums of kerosene left at the highway truck stop. That’s why Thorne sent us down the tracks... he heard rumors that the old Acadian dikes down on the Petitcodiac had salt pans and dried fish... he was planning to bring two flatbed trucks down Route 106 before the harvest..."
 
 Maya let out a cold, bitter laugh from the loading dock.
 
-"Two flatbed trucks?" she said, her dark eyes flashing with contempt. "Route 106 has four washed-out concrete culverts between Salisbury and Hillsborough, and the bridge over the Memramcook was blown with dynamite four years ago. Vance couldn't get a wheelbarrow down that road, let alone a flatbed."
+"Two flatbed trucks?" she said, her dark eyes flashing with contempt. "Route 106 has four washed-out concrete culverts between Salisbury and Hillsborough, and the bridge over the Memramcook was blown with dynamite four years ago. Thorne couldn't get a wheelbarrow down that road, let alone a flatbed."
 
 "He... he didn't know that," Cody wheezed, tears of pain leaking from his swollen eyes. "He just knew you ran this way... and he thought if we dragged you back, you could fix the diesel pumps at the refinery..."
 
@@ -727,7 +727,7 @@ Cody blinked through his tears. "What?"
 
 "M-man... it’s forty miles of shale and briars back to Sussex..." Cody sobbed, his voice cracking with pure despair. "My feet will be shredded to the bone! The black flies will eat me alive!"
 
-"Then you had better walk fast," Mac replied coldly. "A man who hunts women across the mud does not deserve leather between his skin and the earth. You will walk every single mile back to Vance on your bare, bleeding feet. Every time a sharp stone cuts your heel, every time a briar tears your calf, you will remember that you are alive only because I need a two-legged dog to carry my warning back to your master."
+"Then you had better walk fast," Mac replied coldly. "A man who hunts women across the mud does not deserve leather between his skin and the earth. You will walk every single mile back to Thorne on your bare, bleeding feet. Every time a sharp stone cuts your heel, every time a briar tears your calf, you will remember that you are alive only because I need a two-legged dog to carry my warning back to your master."
 
 Cody looked at Maya.
 
@@ -741,7 +741,7 @@ With his trembling, uninjured left hand, he unbuckled his heavy combat boots, pu
 
 Mac reached down, pulled Cody to his feet by his belt, spun him toward the north, and gave him a single, firm shove down the railway ties.
 
-"Walk, scavenger," Mac's voice echoed through the hemlocks like a rolling thunderstorm. "Go back to Sussex. Tell Vance that the Petkotkweyak belongs to Kwitn. Tell him the girl is sovereign under the shield of the Old Stone Light. And tell him that if one more motorized beast comes south of the Salisbury line, I will not wait at the river. I will walk into Sussex with thirty men from Fort Folly, and we will tear his compound down to the foundation stones."
+"Walk, scavenger," Mac's voice echoed through the red spruces like a rolling thunderstorm. "Go back to Sussex. Tell Thorne that the Petkotkweyak belongs to Kwitn. Tell him the girl is sovereign under the shield of the Old Stone Light. And tell him that if one more motorized beast comes south of the Salisbury line, I will not wait at the river. I will walk into Sussex with thirty men from Fort Folly, and we will tear his compound down to the foundation stones."
 
 Cody didn't look back.
 
@@ -765,7 +765,7 @@ Mac walked behind the cart, his massive hands resting on the oak push-bar, prope
 
 Beside the rails, Nipn trotted smoothly through the ferns, his silver coat gleaming in the warm June sun, his head held high, his nose sampling the clean, peaceful air of an unthreatened valley.
 
-And wedged firmly, snugly, and unapologetically between Maya's calcium cannons was Scar.
+And wedged firmly, snugly, and unapologetically in the warm fleece of Maya's shirt was Scar.
 
 The squirrel was exhausted from his heroics. He was curled into a tight, warm ball inside the fleece cup of her bra, his chin propped over her third button, his eyes half-closed as he watched the spruce trees slide past at ten miles an hour. Every few minutes, he would let out a soft, purring whistle of supreme comfort, nuzzle his warm nose into her cleavage, and drift back to sleep.
 
@@ -811,9 +811,9 @@ Mac held her—solid, steady, and immovable as an anchor dropped in sixty fathom
 
 Inside her shirt, Scar poked his head up between her breasts, looked at Mac's bearded jaw three inches away, gave a soft, approving *chrrr*, and licked a speck of salt from Maya's collarbone before curling back into his nest.
 
-Ten minutes later, the trolley rolled into the crushed clam-shell courtyard of the homestead.
+Ten minutes later, the trolley rolled into the crushed clam-sthe ditch courtyard of the homestead.
 
-The hemlock cabin stood warm and welcoming in the afternoon sun, a thin plume of fragrant birch smoke curling from the stone chimney.
+The cedar cabin stood warm and welcoming in the afternoon sun, a thin plume of fragrant birch smoke curling from the stone chimney.
 
 Mac helped Maya off the cart, carrying her up the cedar porch steps and settling her comfortably into the high-backed ash armchair by the hearth. He brought a basin of warm spring water, a soft linen cloth, and washed the dust, sweat, and road mud from her face, arms, and neck with gentle, methodical care.
 
@@ -825,9 +825,9 @@ Six fresh fillets of winter flounder, fried to golden, flaky perfection in sweet
 
 Maya sat in the armchair, wrapped in Mac’s heavy pea-coat, savoring the rich, buttery fish and the sweet, nutty corn cakes.
 
-On her chest, nestled securely between her calcium cannons, Scar was feasting on his own private banquet: three fat butternut halves and a small pile of roasted pumpkin seeds Mac had laid out on a clean cedar shingle resting on her lap. The squirrel was stuffing his cheek pouches until his face looked like a pair of fuzzy russet oranges, occasionally pausing to reach up and groom a loose strand of Maya's dark hair with his tiny front paws.
+On her chest, nestled securely in the warm hollow of her flannel shirt, Scar was feasting on his own private banquet: three fat butternut halves and a small pile of roasted pumpkin seeds Mac had laid out on a clean cedar shingle resting on her lap. The squirrel was stuffing his cheek pouches until his face looked like a pair of fuzzy russet oranges, occasionally pausing to reach up and groom a loose strand of Maya's dark hair with his tiny front paws.
 
-Beside the hearth, Nipn lay stretched out in the sunbeams, his belly full of fish heads, his silver tail giving a lazy, rhythmic thump against the hemlock floorboards.
+Beside the hearth, Nipn lay stretched out in the sunbeams, his belly full of fish heads, his silver tail giving a lazy, rhythmic thump against the split yellow birch floorboards.
 
 Outside the thick cabin walls, eighty square miles of Acadian wilderness stretched out under the summer sky: peaceful, wild, and utterly sovereign.
 
@@ -854,7 +854,7 @@ Maya reached for her white ash staff resting against the table.
 
 She stood.
 
-Her left ankle, freshly poulticed with cold comfrey and bound in clean linen, took forty pounds of her weight with only a mild, dull stiffness. Leaning her palm onto the rock-maple knob of the staff, she walked across the hemlock floorboards with smooth, confident balance.
+Her left ankle, freshly poulticed with cold comfrey and bound in clean linen, took forty pounds of her weight with only a mild, dull stiffness. Leaning her palm onto the rock-maple knob of the staff, she walked across the split yellow birch floorboards with smooth, confident balance.
 
 *Tap-step. Tap-step.*
 
@@ -862,7 +862,7 @@ Between her breasts, Scar felt the shift in momentum. The little squirrel poked 
 
 "You don't have to carry me, Mac," Maya smiled, stepping through the front door onto the cedar porch. "The leg is holding."
 
-"I see it is," Mac rumbled, holding the lantern high to illuminate the crushed clam-shell path. "The bone knows it has work to do."
+"I see it is," Mac rumbled, holding the lantern high to illuminate the crushed clam-sthe ditch path. "The bone knows it has work to do."
 
 They walked down the gentle slope to the railway siding, where the four-wheeled ash draisine stood parked beneath the overhanging spruce boughs.
 
@@ -910,7 +910,7 @@ With that single five-pound touch, the 3:1 compound transmission engaged with a 
 
 The two-stage chain drive spun silently. The four twenty-inch chilled-iron wheels revolved on their freshly greased bronze bearings with zero friction, zero squeal, and zero vibration.
 
-The four-hundred-pound draisine surged forward along the spur track, gliding through the darkness with the terrifying, whispered speed of an owl swooping through the hemlock canopy, coasting fifty yards down the siding until Mac touched the boiled-maple brake lever, bringing the machine to a smooth, progressive halt without a single spark.
+The four-hundred-pound draisine surged forward along the spur track, gliding through the darkness with the terrifying, whispered speed of an owl swooping through the red spruce canopy, coasting fifty yards down the siding until Mac touched the boiled-maple brake lever, bringing the machine to a smooth, progressive halt without a single spark.
 
 Mac stood on the deck in the starlight, his hands resting on the oak thwart, looking back at Maya with sheer, unbounded wonder in his eyes.
 
