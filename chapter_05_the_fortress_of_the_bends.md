@@ -6,7 +6,7 @@ The third morning arrived with the scent of wild black currants and boiling corn
 
 Maya sat on the edge of the ash cot, her knuckles white as she gripped the rough linen of her trousers.
 
-Outside, the sun was just beginning to strike the upper branches of the black spruces, throwing long, amber shafts of light across the hemlock floorboards. From the common room came the steady, rhythmic sounds of a kitchen in calm, orderly operation: the soft *clink* of an iron spoon against earthenware, the hiss of cedar kindling catching in the secondary firebox, and the low, contented snore of Nipn sleeping beside the warm masonry mass.
+Outside, the sun was just beginning to strike the upper branches of the black spruces, throwing long, amber shafts of light across the split yellow birch floorboards. From the common room came the steady, rhythmic sounds of a kitchen in calm, orderly operation: the soft *clink* of an iron spoon against earthenware, the hiss of cedar kindling catching in the secondary firebox, and the low, contented snore of Nipn sleeping beside the warm masonry mass.
 
 It was peaceful. It was clean. It was civilized.
 
@@ -122,13 +122,13 @@ Mac lunged forward two steps, his large hands waving wildly in the air like a ma
 
 Maya flinched, her balance wobbling on her single foot, her eyes wide with shock.
 
-Mac didn't touch her. He stood three feet away, his arms flailing with theatrical, apoplectic exasperation, pacing a frantic six-foot circle on the hemlock floorboards, his hands clutching his temples.
+Mac didn't touch her. He stood three feet away, his arms flailing with theatrical, apoplectic exasperation, pacing a frantic six-foot circle on the split yellow birch floorboards, his hands clutching his temples.
 
 "By the salt and the shale, woman! Are you completely out of your mind? What kind of degenerate, backwoods barbarian do you take me for?"
 
 He stopped, spun on his heel, pointed a thick, trembling index finger at her chest, and sputtered:
 
-"No offense—you're hot as hell! Anyone with working eyes can see you're gorgeous, healthy, built like an absolute brickhouse, and attractive as all get-out! But we met forty-eight hours ago in a drowned quagmire! Your fibula is held together by green birch bark and sheer willpower! You’ve got road sepsis in your blood and you’re walking on three legs, and you think I dragged you out of the swamp to turn my kitchen into a commercial brothel?"
+"No offense—you're breathtaking! Anyone with working eyes can see you're gorgeous, healthy, built like an absolute brickhouse, and attractive as all get-out! But we met forty-eight hours ago in a drowned quagmire! Your fibula is held together by green birch bark and sheer willpower! You’ve got road sepsis in your blood and you’re walking on three legs, and you think I dragged you out of the swamp to turn my kitchen into a commercial brothel?"
 
 Mac threw his hands toward the ceiling beams in utter despair.
 
@@ -174,7 +174,7 @@ Maya didn't cry.
 
 She let out a wet, strangled gasp, clutched her flannel shirt closed over her chest with both hands, and burst into a wild, breathless, hysterical laugh.
 
-It started as a choke in the back of her throat, swelled into a belly-shaking chuckle, and then erupted into full, roaring, tear-streaked Acadian laughter that echoed off the hemlock beams until she was leaning against the table, wheezing for air, her forehead resting against her arm.
+It started as a choke in the back of her throat, swelled into a belly-shaking chuckle, and then erupted into full, roaring, tear-streaked Acadian laughter that echoed off the red spruce beams until she was leaning against the table, wheezing for air, her forehead resting against her arm.
 
 "F-fuck no?" she wheezed, wiping tears from her cheeks with the back of her sleeve, her shoulders shaking with helpless, cathartic hilarity. "You... you looked like you were going to hit me with a porridge spoon!"
 
@@ -367,7 +367,7 @@ She walked the gravel seam beside Mac, her heart hammering against her ribs like
 
 As they approached the weir, the sheer, staggering scale of the bear became terrifyingly clear.
 
-His shoulders were four feet wide, corded with massive slabs of muscle beneath a shaggy, coal-black coat that glistened with drying salt spray. His muzzle was broad, scarred from ancient fights over wild blueberry barrens, and his front paws were the size of dinner plates, armed with heavy, curved black claws that could rip a hemlock trunk into kindling.
+His shoulders were four feet wide, corded with massive slabs of muscle beneath a shaggy, coal-black coat that glistened with drying salt spray. His muzzle was broad, scarred from ancient fights over wild blueberry barrens, and his front paws were the size of dinner plates, armed with heavy, curved black claws that could rip a red spruce trunk into kindling.
 
 As Mac, Maya, and Nipn stepped onto the flat sandstone ledge six paces from the stone pool, the bear shifted his weight.
 
@@ -476,7 +476,7 @@ Scar’s black eyes bulged. His tail gave three sharp, vibrating twitches of pur
 
 Scar did not hesitate for a microsecond.
 
-He flowed down the corner cedar post like a streak of liquid copper, hit the porch railing without making a sound louder than a falling hemlock needle, and launched himself into the air in a breathtaking, four-foot horizontal trajectory.
+He flowed down the corner cedar post like a streak of liquid copper, hit the porch railing without making a sound louder than a falling red spruce needle, and launched himself into the air in a breathtaking, four-foot horizontal trajectory.
 
 *FWUMP.*
 
@@ -544,7 +544,7 @@ Mac leaned his face toward Maya’s chest, staying a polite twelve inches away, 
 
 Inside the flannel shirt, the little squirrel fell dead quiet.
 
-Mac continued, his projection soothing and steady: *If you are gentle, if you keep your claws sheathed and your teeth to yourself, she might let you ride in the warm vest pocket. There are cracked butternuts on the kitchen shelf, and dried pumpkin seeds from last October. But if you scratch her skin or chew her lining, Nipn will chase you to the top of the highest dead hemlock and shake the bark off until you drop.*
+Mac continued, his projection soothing and steady: *If you are gentle, if you keep your claws sheathed and your teeth to yourself, she might let you ride in the warm vest pocket. There are cracked butternuts on the kitchen shelf, and dried pumpkin seeds from last October. But if you scratch her skin or chew her lining, Nipn will chase you to the top of the highest dead red spruce and shake the bark off until you drop.*
 
 A long silence hung over the porch, broken only by the distant *caw* of a crow and the lap of the rising tide against the mud flats.
 
@@ -578,7 +578,7 @@ Scar did not blink. He gave a tiny, dignified flick of his right ear, closed his
 
 Mac sat back on his heels, a slow, gentle smile spreading across his weathered face.
 
-"I told you, Maya," Mac murmured, his blue eyes crinkling at the corners. "The red squirrels of the Petkotkweyak are master judges of timber, shelter, and thermal efficiency. He spent the entire winter sleeping in a drafty hemlock knot, freezing his tail off in twenty-below nor'easters. To him, you represent the highest standard of living known to rodent civilization. You have officially been designated as critical winter infrastructure."
+"I told you, Maya," Mac murmured, his blue eyes crinkling at the corners. "The red squirrels of the Petkotkweyak are master judges of timber, shelter, and thermal efficiency. He spent the entire winter sleeping in a drafty red spruce knot, freezing his tail off in twenty-below nor'easters. To him, you represent the highest standard of living known to rodent civilization. You have officially been designated as critical winter infrastructure."
 
 From the bottom of the porch steps, Nipn trotted over, his great silver paws clicking softly on the flagstones. He rested his massive jaw across Maya’s sound right knee, looked up at the tiny red head poking out of her shirt, and let out a soft, dry snort that ruffled Scar’s whiskers.
 
@@ -678,7 +678,7 @@ She could smell the cold, muddy river four hundred yards below—the iron-rich s
 
 She could hear the soft, rhythmic rustle of an owl’s wings hunting field voles two miles upstream in the marsh hay.
 
-She could feel the cold, heavy dampness of the spruce forest on the ridge, the steady breathing of three white-tailed deer bedded down in a hemlock grove across the creek, and the distant, slow rumbling pulse of Ursus sleeping off his fish dinner beneath the upturned roots of an ancient cedar.
+She could feel the cold, heavy dampness of the spruce forest on the ridge, the steady breathing of three white-tailed deer bedded down in a red spruce grove across the creek, and the distant, slow rumbling pulse of Ursus sleeping off his fish dinner beneath the upturned roots of an ancient cedar.
 
 It was not a world of names, maps, or borders. It was a living, breathing tapestry of life, hunger, rest, and motion, perfectly balanced, entirely complete, and utterly without malice.
 
@@ -708,7 +708,7 @@ He stood up, his massive frame blotting out the stars, extending a broad, warm h
 
 ### Part VII: Evening at the Hearth & The New Commonwealth
 
-Inside the two-room hemlock cabin, the central masonry heater radiated a steady, bone-deep warmth that drove out every lingering chill of the night.
+Inside the two-room cedar cabin, the central masonry heater radiated a steady, bone-deep warmth that drove out every lingering chill of the night.
 
 The scent of the room was intoxicating: the rich, nutty aroma of roasted flint corn, the clean sizzle of fresh fish fried in pork lard, the herbal steam of wild mint tea, and the sweet, dry perfume of drying cedar boughs hanging from the roof rafters.
 
@@ -782,7 +782,7 @@ She let out a dry, self-deprecating laugh.
 
 Her jaw tightened, the fierce, unyielding pride returning to her eyes.
 
-"They thought because I was an engineer who knew how to rebuild an alternator, and because I was a woman, I was property," Maya said, her knuckles turning white around her tea mug. "A warlord named Vance took over the rail yards in Sussex two years ago. Last month, he told me I was going to move into his compound and 'earn my keep' as his personal mechanic and bed-warmer. That night, I packed my rucksack, grabbed my field manuals, stole a pair of wire cutters, slipped through the perimeter fence, and hit the abandoned tracks."
+"They thought because I was an engineer who knew how to rebuild an alternator, and because I was a woman, I was property," Maya said, her knuckles turning white around her tea mug. "A militia commander named Thorne took over the rail yards in Sussex two years ago. Last month, he told me I was going to move into his compound and 'earn my keep' as his personal mechanic and bed-warmer. That night, I packed my rucksack, grabbed my field manuals, stole a pair of wire cutters, slipped through the perimeter fence, and hit the abandoned tracks."
 
 She looked at Mac, her dark eyes glittering with fierce, hard-won defiance.
 
@@ -900,7 +900,7 @@ As the bore reached the Belliveau bluffs, the sound hit the tower: a low, resona
 
 Mac stood on the iron catwalk, feeling the vibration of the water humming through the seventy-foot granite tower beneath his boots.
 
-He looked down at the small hemlock cabin nestled in the sheltered hollow below the bluffs.
+He looked down at the small cedar cabin nestled in the sheltered hollow below the bluffs.
 
 From the stone chimney, a thin, fragrant ribbon of blue birch smoke curled up into the cold night sky.
 

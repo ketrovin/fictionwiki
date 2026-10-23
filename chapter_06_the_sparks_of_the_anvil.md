@@ -4,7 +4,7 @@
 
 ### Part I: The Morning of the High Penthouse
 
-The morning arrived across the Petkotkweyak not with the harsh scream of an alarm clock or the distant rumble of diesel traffic, but with the soft, amber glow of early June sunlight filtering through the hemlock wall shakes and the steady, rhythmic *chuff-whistle* of an eight-ounce squirrel snoring directly against a woman’s breastbone.
+The morning arrived across the Petkotkweyak not with the harsh scream of an alarm clock or the distant rumble of diesel traffic, but with the soft, amber glow of early June sunlight filtering through the split cedar wall shakes and the steady, rhythmic *chuff-whistle* of an eight-ounce squirrel snoring directly against a woman’s breastbone.
 
 In the quiet sleeping alcove of the cabin, Maya woke slowly.
 
@@ -46,7 +46,7 @@ Maya shook her head in defeat.
 
 She had spent four years in Sussex fighting off predatory men who thought her body was public property; now, in the span of twenty-four hours, an eight-ounce boreal rodent had claimed permanent, sovereign title to her cleavage and refused to pay a single copper of rent.
 
-"Fine," Maya muttered, buttoning the first three buttons of her work shirt from the waist up, leaving the fourth, fifth, and sixth buttons wide open so the squirrel had a clear forward view through the collar gap. "You want to ride the calcium cannons? You hold on tight. If we flip the crutches, you're the airbag."
+"Fine," Maya muttered, buttoning the first three buttons of her work shirt from the waist up, leaving the fourth, fifth, and sixth buttons wide open so the squirrel had a clear forward view through the collar gap. "You want to ride shotgun in my shirt? You hold on tight. If we flip the crutches, you're the airbag."
 
 Scar gave a haughty flick of his whiskers, dug his tiny hind claws comfortably into the soft cotton lining of her bra, and closed his eyes in pure, unadulterated smugness.
 
@@ -56,7 +56,7 @@ She swung her sound right leg over the edge of the bed, planting her heavy leath
 
 *Thump-swing-step.*
 
-The ash crutches flexed beneath her weight with that perfect, live-spring resonance Mac had carved into the grain. There was zero creaking, zero pain in her palms, and the thick rubber ferrules salvaged from the truck mudflaps gripped the hemlock floorboards with absolute, silent traction.
+The ash crutches flexed beneath her weight with that perfect, live-spring resonance Mac had carved into the grain. There was zero creaking, zero pain in her palms, and the thick rubber ferrules salvaged from the truck mudflaps gripped the split yellow birch floorboards with absolute, silent traction.
 
 She pushed back the heavy wool curtain and stepped into the main room of the cabin.
 
@@ -114,7 +114,7 @@ Maya picked up her wooden fork, her dark eyes flashing with sharp, professional 
 
 "The draisine?" she asked, her engineer’s brain instantly locking onto the task. "The rail car we're taking to Fort Folly?"
 
-"The very same," Mac nodded, taking his seat opposite her with his own trencher piled high with cakes and fried salt pork. "The frame is sound white ash, and the four wheels are sixty-pound chilled-iron railcar casters salvaged from the plaster mills at Hillsborough. But the drive axle is twisted. Two years ago, when the ice broke up on the Petitcodiac, a twelve-inch driftwood hemlock jumped the culvert and took out the drive sprocket. I dragged the car onto the high siding, but I haven't had the hands or the engineering eye to true the shafts and build a proper reduction gear."
+"The very same," Mac nodded, taking his seat opposite her with his own trencher piled high with cakes and fried salt pork. "The frame is sound white ash, and the four wheels are sixty-pound chilled-iron railcar casters salvaged from the plaster mills at Hillsborough. But the drive axle is twisted. Two years ago, when the ice broke up on the Petitcodiac, a twelve-inch driftwood red spruce log jumped the culvert and took out the drive sprocket. I dragged the car onto the high siding, but I haven't had the hands or the engineering eye to true the shafts and build a proper reduction gear."
 
 Maya chewed a bite of the crisp corn cake, savoring the deep, nutty sweetness of the stone-ground starch, her eyes narrowing as she mentally drafted the mechanical schematics.
 
@@ -162,7 +162,7 @@ Mac stood at the hearth, wearing a heavy, fire-blackened cowhide apron that fell
 
 In his hands, he held a long iron fire rake, pulling a bushel of black, porous lumps from a dry wooden barrel.
 
-"Sugar maple and yellow birch charcoal," Mac said, dumping the fuel into the stone firepot. "Felled in mid-winter when the sap was down, split to two-inch chunks, and pyrolyzed in covered turf-and-dirt earthen mounds up in the high hemlock hollow. It burns clean, Maya. Zero sulfur, zero phosphorus. It gives a white welding heat without poisoning the carbon in the steel."
+"Sugar maple and yellow birch charcoal," Mac said, dumping the fuel into the stone firepot. "Felled in mid-winter when the sap was down, split to two-inch chunks, and pyrolyzed in covered turf-and-dirt earthen mounds up in the high sugar-maple hollow. It burns clean, Maya. Zero sulfur, zero phosphorus. It gives a white welding heat without poisoning the carbon in the steel."
 
 He reached into the hearth with a handful of dry birchbark shavings, striking a high-carbon fire steel against a sharp chunk of local black chert.
 
@@ -441,7 +441,7 @@ Inside Maya’s shirt, all trace of smug aristocratic entitlement instantly evap
 
 *THE HAIRY BOULDER!* Scar’s voice shrieked in Maya's mind, practically vibrating her collarbone. *THE DEVOURER OF ALL LIVING FLESH! THE GREAT BLACK AVALANCHE! RETREAT TO THE BUNKER! SEAL THE HATCHES!*
 
-The squirrel didn't just duck down; he threw himself into reverse gear, squirming frantically backward down between Maya’s calcium cannons, burying his nose into the deep underwire seam of her bra until only the very tip of his twitching tail stuck out between her fourth and fifth buttons like a tiny red exclamation mark.
+The squirrel didn't just duck down; he threw himself into reverse gear, squirming frantically backward down into the warm cleft of Maya’s shirt, burying his nose into the deep underwire seam of her bra until only the very tip of his twitching tail stuck out between her fourth and fifth buttons like a tiny red exclamation mark.
 
 Maya winced as his claws gripped the cotton lining, but she couldn't help a dry chuckle.
 
@@ -493,7 +493,7 @@ Maya closed her eyes for a single heartbeat, drawing upon the lesson Mac had tau
 
 She released the tight, defensive human monologue in her skull. She opened her chest, letting the deep, steady warmth of her heart reach out across the ten paces of gravel between them, framing the thought not in English words, but in the pure, visual language of the wild kin:
 
-She projected an image of the small hemlock cabin, the warm hearth fire, the birch table with the cracked butternuts, the tiny squirrel sleeping safely in the fleece of her shirt, and the great black bear sitting peacefully in the sun, sharing the silver bounty of the tidal weir.
+She projected an image of the small cedar cabin, the warm hearth fire, the birch table with the cracked butternuts, the tiny squirrel sleeping safely in the fleece of her shirt, and the great black bear sitting peacefully in the sun, sharing the silver bounty of the tidal weir.
 
 *We share the fish,* Maya transmitted, her mental voice ringing clear, calm, and sovereign. *The hearth feeds the woods, and the woods honor the hearth. There is plenty of fat for everyone before the snow falls.*
 
@@ -789,7 +789,7 @@ The silence that settled over the lantern room was heavy, cold, and electric wit
 
 Maya sat motionless on the oak bench, her hands clenching into fists on her lap, her bronze skin paling slightly beneath her work-smudges.
 
-"Vance," she whispered, her throat dry and tight. "He sent his patrol out. He's looking for me."
+"Thorne," she whispered, her throat dry and tight. "He sent his patrol out. He's looking for me."
 
 Mac stood beside her, his massive frame blotting out the light from the south window.
 
@@ -831,7 +831,7 @@ On the grate sizzled a dozen fresh Fundy wild oysters and eight heavy quahog cla
 
 Maya sat by the hearth, her splinted leg propped comfortably on the wool-padded keg, holding an earthenware bowl of steamed fiddlehead ferns and hot mint tea.
 
-Scar was sitting squarely in his favorite command post: wedged snugly between Maya's calcium cannons in the unbuttoned V of her flannel shirt, his front paws resting on her collarbone, eating a roasted pumpkin seed with furious, microscopic nibbles, spraying tiny white husks across her chest. Every few bites, he would pause, reach up with a tiny paw to pat her chin, and look into the fire with deep, philosophical serenity.
+Scar was sitting squarely in his favorite command post: wedged snugly in the warm hollow of her chest in the unbuttoned V of her flannel shirt, his front paws resting on her collarbone, eating a roasted pumpkin seed with furious, microscopic nibbles, spraying tiny white husks across her chest. Every few bites, he would pause, reach up with a tiny paw to pat her chin, and look into the fire with deep, philosophical serenity.
 
 Nipn lay curled at Maya’s feet, his massive gray head resting across the toes of her good boot, his tail thumping once whenever Mac turned the fish on the stone.
 

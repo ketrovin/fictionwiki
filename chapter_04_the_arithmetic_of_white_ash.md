@@ -6,7 +6,7 @@ The first sensation was not pain. It was the smell of boiling venison marrow and
 
 Maya opened her eyes.
 
-Above her head ran the massive, hand-hewn hemlock ceiling beams of the cabin, their axe-planed surfaces darkened to the rich, warm color of clover honey by years of beeswax and gentle woodsmoke. Between the beams, the split cedar roof decking sat tight, dry, and immoveable. 
+Above her head ran the massive, hand-hewn red spruce ceiling beams of the cabin, their axe-planed surfaces darkened to the rich, warm color of clover honey by years of beeswax and gentle woodsmoke. Between the beams, the split cedar roof decking sat tight, dry, and immoveable. 
 
 There was no dripping rain. No freezing wind howling through broken highway overpasses. No smell of wet nylon, sour ditch mud, or the metallic terror of gun grease.
 
@@ -44,7 +44,7 @@ Nipn did not answer with words. He merely let out a soft, wet *chuff* through hi
 
 Footsteps approached.
 
-They were not the frantic, heavy stomps of scavengers. They were the slow, measured, acoustic thuds of heavy double-soled leather boots moving with absolute, balanced deliberation across two-inch hemlock planks.
+They were not the frantic, heavy stomps of scavengers. They were the slow, measured, acoustic thuds of heavy double-soled leather boots moving with absolute, balanced deliberation across two-inch yellow birch planks.
 
 Mac stepped into the doorway.
 
@@ -120,7 +120,7 @@ She set the empty tray on the ash stool, pushed back the heavy patchwork quilt, 
 
 "I can hop," Maya insisted, gritting her teeth. "I've hopped across rocky creeks with a thirty-pound rucksack. Just point me toward the porch."
 
-She planted her sound right foot on the hemlock floorboards and pushed upward with her arms.
+She planted her sound right foot on the split yellow birch floorboards and pushed upward with her arms.
 
 The moment her left foot even brushed the floor, a sharp, white-hot lance of nerve warning shot up her shin. Her right knee buckled under the sudden, uneven load. She gasped, her balance evaporating, pitching forward toward the hard timber planks.
 
@@ -217,7 +217,7 @@ For the first time in five months, the air didn't taste of burnt plastic, diesel
 
 She looked around the clearing, her jaw dropping.
 
-"Bloody hell, Mac," she whispered, her dark eyes darting from the low-slung, weathered cabin to the eight-foot wall of woven green wood encircling the homestead. "Is that... is that fence *growing*?"
+"By the salt and the shale, Mac," she whispered, her dark eyes darting from the low-slung, weathered cabin to the eight-foot wall of woven green wood encircling the homestead. "Is that... is that fence *growing*?"
 
 "Black willow, thorny hawthorn, and coastal white cedar," Mac said, walking down the three porch steps toward the workshop shed. "Braided and fused over ten seasons. Nature does not build in right angles, Maya. If you build a dead wooden fence, the Maritime damp rots the posts in seven years. If you plant a living fence, every storm makes the roots dig deeper, and every winter gale only tightens the weave."
 
@@ -315,7 +315,7 @@ Her face, hardened by months of terror, softened into something approaching awe.
 
 Maya’s expression darkened, a cold, bitter shadow settling across her high cheekbones.
 
-"Cole was a diesel mechanic from Sussex before the world went to hell," she said, her hands clenching into fists on her lap. "When the grid collapsed in January and the grocery stores in Moncton and Saint John emptied out in seventy-two hours, people lost their minds. Modern people had three days of food in their pantries and zero idea where water came from once the municipal electric pumps lost three-phase power. Sussex burned inside of a week. The fuel tanks at the highway truck stops went dry, and the people who didn't know how to grow a cabbage turned into pack animals."
+"Cole was a diesel mechanic from Sussex before the grid died and the world fell apart," she said, her hands clenching into fists on her lap. "When the grid collapsed in January and the grocery stores in Moncton and Saint John emptied out in seventy-two hours, people lost their minds. Modern people had three days of food in their pantries and zero idea where water came from once the municipal electric pumps lost three-phase power. Sussex burned inside of a week. The fuel tanks at the highway truck stops went dry, and the people who didn't know how to grow a cabbage turned into pack animals."
 
 She looked down at her bruised hands, picking at a callus on her thumb.
 
@@ -331,7 +331,7 @@ Her voice dropped, tight with remembered grief.
 
 She let out a dry, self-deprecating laugh.
 
-"I made it as far as the Salisbury transmission towers. I was crossing the marsh culvert during the storm when Cole’s crew jumped me from the blackberry bushes. They’d set up camp in an abandoned rail siding tool shed. They wanted my pack. They wanted my boots. Cole came at me with an iron pry bar. I got his brother in the throat with my ash spear—drove the knife right through his neck—and then I jumped down the embankment into the quagmire. My ankle snapped on a submerged hemlock root. I heard the bone go *crack*, and the whole world turned white."
+"I made it as far as the Salisbury transmission towers. I was crossing the marsh culvert during the storm when Cole’s crew jumped me from the blackberry bushes. They’d set up camp in an abandoned rail siding tool shed. They wanted my pack. They wanted my boots. Cole came at me with an iron pry bar. I got his brother in the throat with my ash spear—drove the knife right through his neck—and then I jumped down the embankment into the quagmire. My ankle snapped on a submerged tamarack root. I heard the bone go *crack*, and the whole world turned white."
 
 She shuddered, the memory making her skin prickle.
 
@@ -397,7 +397,7 @@ Maya stared at him, her eyebrows climbing toward her hairline. "You can understa
 
 "How?" she asked, her voice dropping into a breathless hush. "Is that part of... the Kinap thing?"
 
-"Partly," Mac replied, stepping closer to the rail. "My physical strength—the ability to move granite and bend iron—is an inborn trait of my blood. It cannot be taught, and it cannot be learned. An ordinary human attempting to lift an eight-hundred-pound hemlock log will simply snap their lumbar spine."
+"Partly," Mac replied, stepping closer to the rail. "My physical strength—the ability to move granite and bend iron—is an inborn trait of my blood. It cannot be taught, and it cannot be learned. An ordinary human attempting to lift an eight-hundred-pound red spruce log will simply snap their lumbar spine."
 
 He paused, looking down at her with gentle, serious blue eyes.
 
@@ -451,7 +451,7 @@ Scar’s tail gave three slow, rhythmic twitches.
 
 A sudden, overwhelming sensation of architectural covetousness blossomed in his mind, radiating outward with hilarious, uninhibited clarity.
 
-*Soft,* Scar’s inner voice projected, the mental image glowing with pure luxury. *Deep gray wool. Warm like the under-belly of a snow goose. Pockets. Cavities. Heated hollows between the flannel. A ten-star winter drey. Better than dry hemlock feathers. Better than hollow birch bark.*
+*Soft,* Scar’s inner voice projected, the mental image glowing with pure luxury. *Deep gray wool. Warm like the under-belly of a snow goose. Pockets. Cavities. Heated hollows between the flannel. A ten-star winter drey. Better than dry cedar shreds. Better than hollow birch bark.*
 
 He tilted his head, staring with laser-like focus directly at the spacious, fleece-lined expanse beneath Maya’s flannel collar—measuring the cubic volume of her bust with the clinical eye of a master carpenter inspecting a heated penthouse suite.
 
@@ -521,15 +521,33 @@ Nipn gave a soft, dry snort that clearly communicated: *Wolf, not dog. But you w
 
 They walked the courtyard in a wide, slow circle:
 
-Past the rainwater cistern—a colossal four-hundred-gallon oak vat bound with iron hoops that captured the pristine runoff from the cabin roof, fitted with a gravity-fed sand-and-charcoal filtration barrel.
+Past the rainwater cistern—a colossal four-hundred-gallon oak vat bound with hand-forged iron hoops that captured the pristine runoff from the cabin roof, fitted with a three-stage gravity-fed filtration barrel of washed quartz gravel, crushed hardwood charcoal, and fine Mary's Point beach sand.
 
-Past the raised garden beds—terraced into the south-facing sandstone shelf, rich with black composted seaweed and river silt, where emerald rows of heritage sweet peas, climbing pole beans, winter squash, and dark green flint corn were thrusting up through the mulch.
+Past the raised garden beds—terraced into the south-facing sandstone shelf, banked with dry-stacked red shale and enriched with composted kelp, leaf mold, and river silt, where emerald rows of heritage sweet peas, climbing pole beans, winter squash, and dark green flint corn were thrusting up through the straw mulch.
+
+They paused beside the eastern perimeter of the living palisade.
+
+Maya leaned her weight against the buckskin pads of her white ash crutches, her eyes running up and down the woven green wall. Up close, the craftsmanship of the living barrier was breathtaking.
+
+"Mac..." she whispered, her brow furrowing as she studied the joints. "These aren't woven like basket willow. They're biologically welded."
+
+"Inarching," Mac taught, stepping up to the living wall and placing his hand on a thick junction where four trunks intersected. "The old French arborists called it approach-grafting. You take young saplings of black willow—*Salix nigra*—and thorny English hawthorn, planted two feet apart in a zig-zag trench. While the wood is still green and supple in their second spring, you shave a thin ribbon of outer bark from both stems, expose the living green vascular cambium, bind them face-to-face with oiled rawhide, and seal the wound with warm spruce pitch."
+
+"And the cambium layers fuse," Maya said, her engineering mind lighting up. "Cellular division merges the xylem and phloem into a single, continuous grain."
+
+"Aye," Mac said. "By their fourth year, they are no longer separate trees. They are a single, interconnected poly-organism sharing water, sap, and root networks across sixty yards of perimeter. In the winter, the hawthorn brings savage, three-inch thorns that can pierce a heavy caribou boot. In the spring, the willow sends flexible, water-seeking taproots deep into the red shale fissures, anchoring the wall into the bedrock."
+
+Maya tapped one of the diagonal trunks with the rubber ferrule of her crutch.
+
+"It's an organic Warren truss," she noted, calculating the structural mechanics. "Every equilateral triangle distributes dynamic loads across the entire perimeter. If a two-ton bull moose—or a gang of men with an iron battering ram—hits a single six-foot section, the kinetic energy doesn't shear the posts. The tension and compression vectors disperse along the diagonal struts into sixty adjacent trees and dissipate down into the earth. And when eighty-knot Fundy gales hit the bluff, the flexible willow canopies bend and shed eighty percent of the wind resistance, while a solid wooden stockade would catch the gale like a sail and blow its posts right out of the clay."
+
+"That is the difference between dead timber and living wood," Mac said with quiet pride. "Dead iron rusts; dead posts rot. Living wood grows thicker, stronger, and more unyielding with every storm that shakes its boughs."
 
 Past the outdoor stone forge—where the Peter Wright anvil stood dark, polished, and ready, smelling of old charcoal and tempered steel.
 
 "Come around to the north slope," Mac suggested, gently matching her swinging pace. "Before you see the perimeter, you should understand the pantry. A fortress without food is merely an expensive tomb."
 
-He guided her along a smooth, packed earth path that skirted the leeward side of the cabin, passing beneath the deep, cool shade of virgin hemlocks and towering yellow birches. The air cooled noticeably, dropping ten degrees into that humid, emerald quiet where the sun never directly touched the forest floor.
+He guided her along a smooth, packed earth path that skirted the leeward side of the cabin, passing beneath the deep, cool shade of coastal red spruces and towering yellow birches. The air cooled noticeably, dropping ten degrees into that humid, emerald quiet where the sun never directly touched the forest floor.
 
 Set squarely into the natural sandstone terrace of the hill stood a low, arched portal that looked like the entrance to an ancient Celtic barrow.
 
@@ -565,7 +583,7 @@ She turned to Mac, her face pale with pure, unadulterated awe.
 
 "The earth provides the dividend, Maya, if you don't default on the principal," Mac said softly. "The Acadians farmed this valley for a hundred and fifty years without electricity or chemical fertilizers. They understood that the pantry is built in July, not in November."
 
-He guided her back out into the hemlock shade, letting the heavy tamarack door swing shut with that solid, airtight *thunk*.
+He guided her back out into the red spruce shade, letting the heavy tamarack door swing shut with that solid, airtight *thunk*.
 
 As they rounded the northern ridge, Mac pointed up through the spruce canopy toward the high headland half a mile to the south.
 
@@ -699,7 +717,7 @@ Maya stared at him across the candle flame, her fork resting against the rim of 
 
 "In iron-gall ink on rag-cotton paper," Mac said. "Written while King Louis the Fifteenth was sitting on the throne of France. Three hundred years old, and you can still read every stroke. That's why I spent forty years rescuing books from institutional recycling bins, Maya. When the power went out, three billion people lost their entire culture because they’d uploaded it to a digital cloud that required sixty thousand coal-fired power plants to stay visible. The Acadians didn't have a cloud. They had ink, paper, tamarack trunks, and the memory of their elders."
 
-Maya looked down at the sturdy hemlock table, then out the window toward the dark silhouette of the headland where the lighthouse stood against the stars.
+Maya looked down at the sturdy sugar-maple table, then out the window toward the dark silhouette of the headland where the lighthouse stood against the stars.
 
 "People in the city used to say that books were obsolete," she murmured, a faint trace of bitterness in her voice. "They laughed at people who kept physical libraries. Said it was dead tree waste. Then the transformers blew, the cell towers died, and within a week, nobody knew how to purify water without a plastic filter, or how to identify wild leeks from false hellebore. We were a species of geniuses who couldn't survive forty-eight hours without an electrical socket."
 
@@ -717,7 +735,7 @@ He set the book beside Maya’s elbow, along with a fresh mug of steaming chamom
 
 Maya ran her rough, calloused fingers across the embossed gold lettering of the calfskin spine.
 
-She looked up at the quiet giant standing before the hearth, at the wolf sleeping peacefully across her threshold, and at the solid hemlock beams holding the quiet night above their heads.
+She looked up at the quiet giant standing before the hearth, at the wolf sleeping peacefully across her threshold, and at the solid red spruce beams holding the quiet night above their heads.
 
 The road was gone. The terror was behind the living wall.
 

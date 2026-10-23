@@ -139,6 +139,42 @@ The frame was constructed of straight-grained four-by-four white ash timbers, mo
 
 Underneath, the mechanical advantage was pure, unadulterated Victorian genius: a four-to-one compound gear train of cast-steel spur gears linking the walking-beam to the rear axle, fitted with four twelve-inch chilled cast-iron flanged wheels that rolled on sealed industrial roller bearings.
 
+Before Mac rolled the draisine onto the active line, he took his wooden tool box from the bench to perform the ritual inspection that kept iron rolling on iron.
+
+A railway handcar was not a farm wagon; it operated at five times the speed with twenty times the kinetic inertia. If a bearing seized at twenty miles an hour on a thirty-foot embankment, the walking-beam would kick like a frightened mule, snapping the operator's clavicle and hurling the cart into the timber.
+
+Mac knelt beside the rear journal box on the left axle. 
+
+Using an open-ended bronze wrench, he backed out the two square-headed retaining bolts and lifted the cast-iron axle cap. Inside sat the split sleeve bearing, cast from high-grade babbit metal—an antique friction-reducing alloy of eighty-nine percent pure Malacca tin, seven percent antimony for hardness, and four percent copper to bind the dendritic crystal matrix. 
+
+Mac inspected the bearing surface with the tip of his thumb. There were no bright scoring marks, no flakes of galling, and no abrasive grit. The clearance was exactly five-thousandths of an inch—tight enough to prevent wheel wobble, loose enough to allow the axle to float on an unbroken hydrodynamic film of lubricant. 
+
+From an airtight earthenware crock, Mac scooped a handful of fresh journal packing: long-fiber virgin wool waste, boiled in clean spring water to remove animal lanolin, and steeped in a hot mixture of eighty percent rendered mutton tallow, fifteen percent cold-pressed neat's-foot oil, and five percent micro-pulverized natural flake graphite. 
+
+With a polished hardwood packing iron, Mac pressed the saturated wool firmly into the journal cell beneath the rotating journal. 
+
+"The wool waste acts like a wick," Mac murmured, his hands black with the silvery sheen of graphite. "Capillary action draws the oil upward against gravity, keeping the underside of the spinning axle wet with tallow at every revolution. An axle running on babbit with mutton tallow and graphite has a coefficient of friction of less than point-zero-zero-five. It glides on liquid fat."
+
+He bolted the cap down true, safety-wiring the bolt heads with soft annealed copper wire so road vibration could never back them out.
+
+Then he turned to the walking-beam pivot.
+
+The central rocker arm was a six-inch-square billet of seasoned white oak, steam-bent and carved by hand to clear the gear frame. In the center, it pivoted on a two-inch case-hardened steel shaft seated in twin pillow blocks of phosphor-bronze. Mac pulled the tapered iron cotter pin, took a grease syringe carved from a brass locomotive steam-cock, and pumped three ounces of thick pine-tar grease into the reservoir until clean grease oozed from the dust felt.
+
+Next, he inspected the brake linkage. 
+
+On a gravity grade falling toward the Tantramar, friction was life. The brake was operated by a long, counterweighted lever of springy white ash running down to two massive, contoured brake shoes. 
+
+Mac examined the wooden shoes. They were carved from solid blocks of end-grain sugar maple (*Acer saccharum*).
+
+"Never use pine or spruce for brake timber," Mac noted to himself, running his thumb over the hard, burnished face of the maple. "Conifer wood contains soft turpentine resins that melt under frictional heat, turning the shoes into slick glass. Sugar maple has an interlocking, uniform cellular structure. When it rubs against chilled iron at twenty miles an hour, it chars into a microscopic layer of hard carbon that bites the wheel tread with an unyielding, predictable drag. It slows five hundred pounds without locking the wheels into a flat-spotting skid."
+
+He adjusted the threaded iron turnbuckle on the brake rod, tightening it three turns until the maple shoes hovered exactly three-sixteenths of an inch above the iron wheel treads.
+
+Finally, he took a five-foot white ash gauge rod, stepped onto the siding rails, and laid the notched ends between the inner heads of the two ninety-pound rails.
+
+Fifty-six and a half inches. Standard Stephenson gauge. Dead true to the millimeter. The heavy Acadian frost had not heaved the gravel ballast, and the fishplates on the joints were tight and flush.
+
 Mac laid his hand on the wooden handlebar. With the pressure of a single finger, the five-hundred-pound handcar rolled forward three inches along the siding rails, perfectly silent, with zero friction.
 
 "Greased and true," Mac murmured. "The Romans built roads of paving stones that took thirty legions fifty years to lay. The British and Canadians laid forty thousand miles of steel rails in three decades. On iron, rolling friction drops by ninety percent compared to dirt. A single horse can pull forty tons on iron; a single man can pump five hundred pounds at twenty miles an hour."
@@ -247,7 +283,47 @@ Mac ascended the steel lattice with the smooth, terrifying speed of an ape climb
 
 He unslung the heavy English sailmaker's shears from his shoulder.
 
+The balloon was a research-grade aerostat—a sixty-foot teardrop envelope manufactured from ultra-high-tenacity ripstop nylon, weighing less than two ounces per square yard, coated on both faces with an impermeable, flexible film of clear polyurethane and UV-inhibiting silicone. 
+
+In the post-collapse world, where woven fabric of any kind was prized like gold dust, five thousand square feet of continuous, tear-proof, completely waterproof synthetic canvas was an imperial treasure. It could be converted into twenty watertight sails for coastal schooners, fifty unbreakable winter sled tarpaulins, insulated wall liners for the lighthouse, or foul-weather oilskin capes that would outlast three generations of settlers.
+
 The burner framework hung just below him, tangled in the tamarack branches.
+
+Mac uncoiled his double-sheave block-and-tackle. 
+
+He did not hack through the shroud lines with careless haste. A novice scavenger would have cut the ropes blindly, dropping the delicate nylon envelope eighty feet into the thorn bushes below, shredding the fabric into useless ribbons.
+
+Mac wrapped a heavy sling of three-inch hemp webbing around the central steel node of the transmission tower. He hooked the upper bronze block into the sling, running the half-inch manila fall-line down to an iron cleat on the tower leg.
+
+Working along the horizontal steel girder with the balanced poise of a high-steel rigger, he reached the twelve load-bearing suspension points.
+
+The shroud lines were not hemp rope; they were braided twelve-strand ultra-high-molecular-weight polyethylene—commercial Dyneema aircraft cable, three-eighths of an inch thick, with a certified tensile breaking strength of eighteen thousand pounds. Each cable was terminated in an eye-splice around a stainless-steel rigging thimble, locked with a screw-pin shackle to the balloon's structural perimeter tape.
+
+Mac took a small adjustable marlinspike from his belt kit. He cracked the seized bronze cotter pins, backed out the shackle pins one by one, and transferred the tension of the suspension lines directly to his block-and-tackle harness.
+
+When the burner framework was lashed securely to the tamarack trunk, Mac began the delicate work of liberating the envelope.
+
+The turquoise and international orange nylon had bunched into dozens of horizontal gores, caught on the galvanized diagonal braces of the tower. 
+
+Mac did not pull against the wind. He waited for the lulls between the northwest gusts. Whenever the breeze slackened, he gently gathered the gossamer fabric in two-foot bights, working along the seams where the heavy one-inch polyester load tapes were stitched into the nylon in continuous structural ribbons. 
+
+He freed the crown ring, unthreaded the parachute-valve deflation line, and slowly eased the massive cloud of fabric downward through the lattice, letting the silky nylon slide across his wool sleeves without catching a single bolt head.
+
+Eighty feet below on the railway embankment, the nylon drifted down onto the clean ballast like a falling parachute of liquid sky.
+
+Mac descended the steel tower, his boots touching the gravel beside Nipn.
+
+"Now, the pack," Mac murmured.
+
+Nipn stepped aside, watching with intelligent curiosity as Mac laid out the enormous expanse of turquoise fabric across the clean gravel.
+
+Mac did not wad it into a messy heap. He folded the envelope systematically: aligning the twenty-four gores along their longitudinal load tapes, walking the length of the fabric to squeeze the trapped pockets of air out through the open deflation port at the crown. He folded the sixty-foot length in thirds, then in fifths, turning five thousand square feet of high-altitude aerospace canvas into a dense, tight, perfectly rectangular bale three feet wide and six feet long.
+
+He bound the bale with six turns of the recovered Dyneema shroud line, tying off the bitter ends with self-locking timber hitches.
+
+With an easy lift of his shoulders, Mac hoisted the two-hundred-pound bale of folded nylon, carried it to the draisine, and laid it flush along the tamarack deck between the ash frame rails. It formed a thick, resilient, springy cushion that covered the entire forward half of the cart.
+
+"A waterproof mattress for five kings," Mac said, testing the spring of the nylon with his palm. "And if we find what the ravens spoke of, it will keep cold bones off the iron." 
 
 Mac reached down with one arm, grabbed the two-inch tubular aircraft-aluminum frame, and pulled.
 
@@ -422,7 +498,7 @@ The woman stared at the wolf.
 
 Her breath hitched in her chest—a sharp, ragged gasp of sheer disbelief.
 
-"A wolf..." she whispered, her eyes wide, dark brown pupils dilated with shock and septic fever. "Bloody hell... you've got dogs... you're hunting me with dogs..."
+"A wolf..." she whispered, her eyes wide, dark brown pupils dilated with shock and septic fever. "By the salt and the shale... you've got dogs... you're hunting me with dogs..."
 
 "He's not a dog, miss," Mac said softly, his voice dropping into that rhythmic, comforting Maritime cadence that felt like a warm wool blanket laid over cold shoulders. "His name is Nipn. Mi'kmaw for Summer. And I am not hunting you. I am Mac. This ridge belongs to my house, and there are no raiders behind me."
 
@@ -488,9 +564,25 @@ Her eyes rolled back under dark lashes. Her body went completely limp in his arm
 
 Mac did not pause.
 
-He knelt in the moss, laying her gently across his lap. Working with swift, practiced efficiency, he pulled his heavy folding knife from his pocket, severed the crude spruce-bark splint from her leg, and inspected the joint.
+He knelt in the deep carpet of green moss, laying her shivering form gently across his wool-clad lap. 
 
-"Severe closed bimalleolar fracture with subluxation," Mac diagnosed under his breath, his fingers tracing the hot, swollen bone with delicate precision. "The fibula is snapped two inches above the malleolus, and the talus has shifted outward. If we don't reduce the dislocation and set the bone before the swelling sets like plaster, she'll walk with an iron peg for the rest of her life."
+Her head rested against his shoulder, her breathing shallow, rapid, and raspy from forty-eight hours of exposure to fifty-degree rain and septic trauma.
+
+Working with swift, practiced efficiency, Mac pulled his heavy Sheffield folding knife from his pocket, slipped the rounded back of the blade beneath the bloody flannel bindings, and severed the crude spruce-bark splint from her left leg.
+
+He peeled away the sodden wool trousers, exposing the limb from the knee down to the bare foot.
+
+"Severe closed bimalleolar fracture-dislocation," Mac diagnosed under his breath, his calloused fingers tracing the hot, swollen joint with microscopic, delicate precision. "Supination-external rotation mechanism. The fibula has suffered a jagged spiral fracture fifty millimeters above the lateral malleolus. The medial deltoid ligament has torn, and the talus has displaced laterally by twelve millimeters. The articular cartilage is unseated from the tibial mortise."
+
+He did not begin pulling on the bone yet.
+
+First, he leaned close, pressing two fingers firmly into the hollow behind her medial malleolus to palpate the posterior tibial artery.
+
+A faint, rapid, thready pulse fluttered beneath his fingertips—eighty beats a minute, weak but continuous. He moved his fingers to the dorsum of her foot, checking the dorsalis pedis artery between the first and second metatarsal bones. The pulse was there. He pressed the pale pad of her great toe and released: the pink capillary refill returned in three seconds.
+
+"The arterial blood is still flowing past the fracture," Mac murmured, his jaw tight with relief. "The displaced bone has stretched the neurovascular bundle, but the artery hasn't kinked shut. If we had arrived three hours later, the ischemic compartment pressure would have killed the tissue of the foot."
+
+He looked at her skin. Her core temperature was plummeting; her lips were cyanotic, her shivers so violent that her teeth were clicking together.
 
 He laid his bare palm over the shattered ankle.
 
@@ -502,9 +594,23 @@ Mac opened that quiet, boundless reservoir behind his sternum. He pushed a stead
 
 Under his palm, the savage, throbbing heat in her leg began to subside. The spasming calf muscles relaxed, going soft and pliable. The jagged pain signals traveling up her femoral nerve into her unconscious brain smoothed out into a dull, manageable ache, allowing her ragged, frantic breathing to slow into a deep, steady rhythm.
 
-He pulled two straight, clean white cedar laths from his medical pack, padding them with thick handfuls of damp, sterile sphagnum moss.
+He pulled his emergency field kit from his canvas pack.
 
-He aligned the cedar laths along both sides of her shin, binding them firmly with long strips of clean linen wrap.
+For field stabilization, before the formal bone-setting at the hearth, the limb needed rigid immobilization that would not compress the inflamed blood vessels during transport.
+
+He pulled two straight, hand-planed laths of seasoned northern white cedar (*Thuja occidentalis*) from the pack—lightweight, flexible, split along the natural ring-porous grain so they would not snap under lateral impact.
+
+Beside the cedar laths, Mac gathered several thick, saturated pads of living emerald-green sphagnum moss (*Sphagnum magellanicum*) from the peat hummock beside the fallen pine.
+
+"Nature’s sterile dressing," Mac murmured, gently pressing the moss against the hot, bruised skin of her lower leg. 
+
+Sphagnum moss was an evolutionary marvel: its hollow hyaline cells absorbed twenty times their dry weight in fluid, drawing inflammatory exudate out of the swollen tissues, while its natural content of sphagnic acid and phenolic compounds maintained an acidic micro-environment of pH 4.2 that actively prevented bacterial infection.
+
+He set the cedar laths along both sides of her shin, extending from just below the knee down past the heel to prevent any rotational torque on the ankle joint.
+
+From his roll of unbleached linen, Mac unspooled six yards of clean, boiled bandaging. 
+
+Working with rhythmic, surgical grace, he wound the linen around the cedar laths and the sphagnum moss in alternating figure-eight turns, snug enough to lock the bones in place, yet cushioned by the moss so that the swelling would not cut off venous return during the ride.
 
 Then, Mac stood up.
 
@@ -654,7 +760,7 @@ He looked down at the weeping, broken man.
 
 "You should have taken the five seconds," Mac said softly.
 
-Cole looked up at him, tears mixing with the ditch mud on his bruised face. "What... what the hell are you? You're not human... you're a demon..."
+Cole looked up at him, tears mixing with the ditch mud on his bruised face. "What... what in the name of the salt are you? You're not human... what kind of creature are you?"
 
 "No," Mac replied, his voice a low, resonant rumble that seemed to vibrate through the earth. "I am Mac. An archivist. And this valley belongs to the living."
 
@@ -772,43 +878,79 @@ Within sixty seconds, the transformation occurred.
 
 Under his fingers, the violent, throbbing inflammation in her ankle began to cool. The mottled purple skin paled as the localized capillary pressure released. The agonizing spasms that had locked her gastrocnemius and soleus muscles into rigid iron cords softened, the tendons relaxing until the joint became pliable and receptive to manipulation.
 
-Mac stood up, planting his boots firmly on the hemlock floorboards.
+Mac stood up, planting his boots firmly on the split yellow birch floorboards.
 
-He did not use modern bone clamps or stainless steel traction pins. With his Kinap situational strength, he could deliver twenty pounds of gentle, steady, perfectly calibrated axial traction with zero trembling, zero jerking, and zero mechanical slip.
+The room was silent, save for the soft crackle of maple coals in the hearth and the deep, rhythmic breathing of Nipn resting by the threshold.
 
-He grasped her heel in his left palm, cradling the calcaneus like an egg, and placed his right hand across the dorsal bridge of her foot.
+Now came the delicate, unsparing surgery of bone and joint.
 
-"Breathe, sister," he murmured, though she was deep in her stupor. "The grain must find the grain."
+In a modern hospital, reduction of a severe bimalleolar dislocation required general anesthesia, muscle paralyzers, fluoroscopic C-arm X-ray guidance, and four medical staff pulling with counter-traction harnesses. Without chemical anesthesia, the violent reflex spasm of the gastrocnemius and soleus muscles could snap an orthopedic surgeon's fingers and tear the periosteum to shreds.
 
-With a slow, continuous, velvet-smooth pull, Mac drew the foot forward along its anatomical axis.
+Mac had no chemicals, but he possessed something far more precise: the sovereign, kinetic stillness of the *Kinap*.
 
-The displaced talus bone slid cleanly back into its natural mortise between the tibia and fibula. There was no sickening crunch of grating bone; only a soft, muffled, elastic *SCHLUCK* as the articular cartilage reseated into its synovial cradle. The alignment was true—straight as a surveyor’s plumb line from her patella to the web of her second toe.
+He stepped to the foot of the cot.
 
-Mac did not release the tension with his hands; he maintained the traction with his right forearm while his left hand reached for his medical basket.
+He grasped Maya's heel in his broad left palm, cupping the calcaneus bone like an egg in a cushioned vise. With his right hand, he crossed the dorsal bridge of her midfoot, his thumb locking against the first cuneiform and his fingers wrapping beneath the metatarsal arch.
 
-He had prepared the cast beforehand: four strips of fresh, supple inner bark taken from living green white birch, soaked in hot water until they were flexible as heavy leather, backed with a thick layer of damp, sterile emerald-green sphagnum moss.
+"Breathe, sister," he murmured, his voice a low, harmonic drone that resonated through her unconscious nervous system. "The grain must find the grain."
 
-He wrapped the moss and birch bark around the lower third of her leg, molding the natural curves of the bark to the contours of her malleoli and shin. Over the birch, he wound eight yards of unbleached linen bandage, pulling each turn snug and securing the end with two polished bone pins.
+Mac leaned back with his hips, using his body mass rather than arm strain to initiate the traction.
 
-As the birch bark cooled and dried in the warm room air, the natural wood resins and tannins would cause it to shrink and harden, forming a rigid, custom-molded orthopedic splint that was lighter than plaster, completely breathable, and naturally antiseptic.
+He delivered twenty-five pounds of smooth, unbroken, perfectly linear axial pull along the anatomical axis of the tibia. There was no tremor, no vibration, no mechanical flutter. 
 
-"The Acadians called this *l'écorce de guérison*," Mac murmured, wiping his brow with the back of his wrist. "The healing bark. No fiberglass, no synthetic polyurethane polymers. The tree provided the cast, the bog provided the bandage, and the river provided the bone-setter."
+Under that steady hydraulic tension, the contracted calf muscles yielded, stretching out like warm dough. The jagged, overlapping ends of the fractured fibula separated by three millimeters, clearing each other without scraping the delicate nerve sheaths.
 
-Then, from the kitchen shelf, he retrieved an earthenware crock of dark, viscous syrup: an infusion he had simmered from fresh white willow bark (*Salix alba*), rich in natural salicin, blended with wild red clover honey and dried chamomile flowers.
+Then, with an infinitesimal, clockwise rotation of his right wrist—scarcely two degrees—Mac corrected the external rotation.
 
-He lifted her shoulders, cradling her head with one large palm, and pressed the rim of the pewter spoon to her lips.
+*SCHLUCK.*
 
-"Drink, daughter of the road," he whispered. "It is willow and honey. It will cool the fire in your blood and let the bones mend."
+The sound was soft, elastic, and deeply satisfying—the hydraulic reseating of articular cartilage as the displaced talus bone slid cleanly back into its natural anatomical mortise between the medial and lateral malleoli. 
 
-Even in her deep, feverish stupor, the instinct of survival responded to his voice.
+The joint was home.
 
-Her lips parted. She swallowed the sweet, bitter syrup in three small, instinctive gulps. She let out a long, shuddering sigh of profound relief, her tension finally melting away as the warmth of the room and the medicinal herbs spread through her veins.
+Mac checked the alignment with a critical eye: a straight, unbroken mechanical vector ran from the center of her patella down through the crest of the tibia, passing cleanly through the second metatarsal space. The natural arch of the foot had returned; the ghastly, sickle-shaped deformity was gone.
+
+He maintained the traction with his right forearm braced against the end of the bed, reaching into his copper water kettle with his free left hand.
+
+From the steaming water, Mac lifted the prepared orthopedic splint: six wide, flexible sheets of inner white birch bark (*Betula papyrifera*), harvested from a deadfall log on the sugar ridge and soaked in boiling spring water until the woody fibers had softened to the suppleness of oiled harness leather.
+
+"The Acadian cast," Mac whispered. "*L'écorce de guérison.*"
+
+He laid a three-quarter-inch bed of fresh, damp, sterile sphagnum moss directly against her skin, molding it over the malleoli and the Achilles tendon. The moss provided a natural, cushioning gasket that would prevent pressure ulcers over the bony prominences while continuously leaching its mild antibiotic acids into the bruised skin.
+
+Over the moss, Mac wrapped the warm, pliable birch bark sheets, overlapping the layers in alternating spiral wraps from the base of the toes all the way to four inches below the tibial tubercle.
+
+Then he reached for eight yards of unbleached boiled linen strapping, wound on a turned maple spool.
+
+Working with rhythmic, ambidextrous speed, he wound the linen firmly over the birch bark, applying even, overlapping pressure with each turn, locking the ends with four carved pins of white-tailed deer bone.
+
+As the birch bark cooled and dried in the radiant warmth of the cabin's stone thermal mass, the physics of the Acadian craft took effect. The natural tannins, suberin, and betulin in the birch bark caused the wood cells to contract by eight percent, shrinking the bark tightly around the contours of her leg.
+
+Within thirty minutes, the warm, pliable bark had hardened into a rock-rigid, featherweight orthopedic cylinder. It was stronger than fiberglass, lighter than plaster of Paris, completely breathable, and naturally impervious to bacterial decay. It immobilized the fractured fibula and the reseated talus in absolute, unbreakable alignment, allowing the torn deltoid ligaments to knit without tension.
+
+"The tree gave the bone-casing," Mac murmured, wiping his brow with the back of his wrist. "The bog gave the padding, and the river provided the bone-setter."
+
+Now came the internal medicine.
+
+From the kitchen shelf, Mac retrieved an earthenware crock of dark, aromatic syrup: a concentrated medicinal decoction he had simmered from fresh inner bark of the white willow tree (*Salix alba*), gathered from the stream bank before the leaves opened when the salicin content was highest. He had blended the bitter willow extract with raw red clover honey and dried chamomile flowers.
+
+He lifted her shoulders, cradling her head against his broad chest, and pressed the rim of the pewter spoon to her dry lips.
+
+"Drink, daughter of the road," he whispered. "It is willow and sweet clover. It will cool the fire in your blood and let the bones mend."
+
+Even in her deep, feverish stupor, the primordial instinct of survival answered his voice.
+
+Her lips parted. She swallowed the sweet, herbal syrup in three small, instinctive gulps. 
+
+The natural salicin—the plant kingdom's precursor to acetylsalicylic acid—would metabolize in her liver into salicylic acid within the hour, breaking the septic fever, lowering the inflammatory prostaglandins in the injured joint, and easing the central nervous system into restorative sleep.
+
+She let out a long, shuddering sigh of profound relief. The tension in her neck melted away, and her head rested limp and peaceful against the soft wool of his shirt.
 
 Mac pulled a heavy patchwork quilt—pieced together from old wool blankets and soft flannel shirts—up to her chin, tucking the edges snugly around her broad shoulders.
 
 He stood up, looking down at her sleeping face.
 
-In the soft glow of the tallow candle, her features were peaceful. The fierce, snarling terror of the swamp was gone, replaced by the deep, restorative slumber of a wounded creature that had finally reached safe harbor.
+In the soft amber glow of the tallow candle, her features were peaceful. The fierce, snarling terror of the swamp was gone, replaced by the deep, restorative slumber of a wounded creature that had finally reached safe harbor.
 
 Nipn walked into the bedroom.
 
@@ -826,7 +968,25 @@ The sun had dropped behind the Acadian hills, leaving the sky a magnificent bowl
 
 Mac did not go to bed.
 
-He pulled up his ash armchair beside the hearth. He took an ancient iron pot, filled it with cold spring water, and dropped into it a heavy marrow bone from an autumn buck he had preserved in salt, along with wild leek bulbs, dried kelp, and cracked barley grains. He set the pot on the iron trivet over the slow coals of the thermal mass, letting it simmer through the night into a rich, golden bone broth that would restore her blood and tissue when consciousness returned.
+He pulled up his ash armchair beside the hearth. 
+
+He took an eight-quart cast-iron Dutch oven, set it on the workbench, and prepared the restorative broth that would rebuild her shattered tissues when consciousness returned.
+
+First, he took a heavy split marrow bone from an autumn buck he had preserved in dry sea-salt in the root cellar. Using a small ball-peen hammer and a cold chisel on the hearthstone, he cracked the thick cortical bone lengthwise, exposing the dense, fat-rich red and yellow marrow—the richest natural source of collagen, glycine, proline, and alkylglycerols, essential for osteoblast proliferation and bone callus formation.
+
+He roasted the cracked bones in the firebox coals until the marrow bubbled and released a rich, buttery fragrance that filled the cabin.
+
+Then he transferred the bones into the iron pot, covering them with four quarts of cold, clear spring water from the high sandstone cistern.
+
+To the pot, he added:
+Two cups of dried bladderwrack kelp (*Ascophyllum nodosum*), harvested from the clean granite reefs of Cape Enrage—packed with bio-available organic iodine, calcium, magnesium, potassium, and fucoidan polysaccharides to combat systemic inflammation.
+A handful of wild leek bulbs (*Allium tricoccum*) gathered from the maple ridge for sulfur compounds and natural allicin.
+Two tablespoons of raw apple cider vinegar to lower the pH of the water, drawing the calcium phosphate and magnesium out of the buck bones into the broth.
+And a cup of cracked, hulless Acadian barley grains to provide clean, slow-burning complex carbohydrates for her depleted liver glycogen.
+
+He set the iron pot onto the heavy cast-iron trivet over the slow, glowing coals of the masonry thermal battery. 
+
+The broth began to simmer with a gentle, rhythmic *blup... blup... blup*, sending a heavenly, restorative aroma of roasted marrow, sea-salt, and sweet wild leeks drifting through the quiet rooms.
 
 Then, he reached to his side table and picked up his leather-bound 1786 volume of Samuel Johnson.
 
