@@ -41,15 +41,18 @@
 
 ---
 
-### The Sovereign Arsenal
+### The Sovereign Arsenal & Martial Discipline
 * **Carried Weapons:** **None.**
+* **Martial Discipline (The Master In-Fighter):**
+  * Mac is no slouch in the pocket. Having survived centuries, he possesses elite, time-tested mastery of bare-knuckle pugilism, old-school classical boxing, dirty boxing, and indigenous close-quarters grappling.
+  * **In-Fighting Prowess:** He slips punches by half an inch, bobs inside the arc of swinging blades, works the collar-tie clinch, and delivers short, six-inch shovel hooks that deliver devastating kinetic shock straight into ribs and liver. Zero wild haymakers; pure technical precision, head movement, and devastating phone-booth violence.
 * **Combat Doctrine:** Mac carries no steel, sidearms, or bladed weapons on his belt. His skeleton is the anvil; his fists are the hammer; the bedrock is his anchor.
 * **Combat Cadence:**
   1. *Peaceful Arrival:* Open posture, loose palms, calm baritone voice offering intruders a peaceful retreat.
   2. *The Line Crossed:* Hostile racks a bolt, raises steel, or threatens Maya/the homestead.
   3. *The Inhale:* Deep, silent nasal breath pulling *Mntu* into his lungs and sinew.
   4. *The Azure Ignition:* Electric blue fire ignites in his irises.
-  5. *Absolute Violence:* Cold, terrifying, instantaneous finality. Weapons are caught by the blade, crowbars snapped like pine kindling, and threats ended with zero wasted motion.
+  5. *Absolute Violence (The In-Fighter Unleashed):* Slipped punches, inside hooks, weapons caught by the blade, crowbars snapped like pine kindling, and threats ended with cold, technical, unstoppable finality.
 
 ---
 
