@@ -94,7 +94,7 @@
 *Anime Key Visual: Maya with exaggerated anime proportions, twin herringbone braids, and Scar snuggled in her neckline.*
 
 ### Quick Dossier
-* **Full Name:** Maya (Acadian heritage, Moncton native).
+* **Full Name:** Maya (Moncton native).
 * **Aliases:** The Engineer of the Red Mud, The Sovereign Runner.
 * **Age:** 24 years old.
 * **Background:** Former Dalhousie University mechanical engineering student and competitive varsity track athlete (sprinter and hurdler). Escaped brutal enslavement in Sussex before collapsing on the Petitcodiac mudflats.
@@ -102,7 +102,7 @@
   * Highly athletic runner's physique: sculpted shoulders, long powerful quadriceps, exceptional fast-twitch explosive speed.
   * Unmistakably generous, curvaceous proportions (accentuated with dramatic hourglass silhouette in anime styling).
 * **Distinctive Features:**
-  * High Acadian cheekbones, sharp determined jawline, dark chicory-brown eyes brimming with spatial calculation.
+  * High sculpted cheekbones, sharp determined jawline, dark chicory-brown eyes brimming with spatial calculation.
   * Long dark brunette/black hair styled into two practical, tight herringbone twin braids resting over her collarbones.
   * Healing scars on wrists and ankles from Sussex chain-gang irons, treated with Mac's herbal salves.
 

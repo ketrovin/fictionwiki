@@ -18,7 +18,7 @@ The wood was cool against her calloused skin. Over three weeks of evening scrapi
 
 "You're watching my eyes, Maya," Mac murmured, his voice a quiet, gravelly baritone that barely stirred the salt air. "Eyes lie. A man can look to the left while his balance is already falling to the right. A man can squint like he's going for a high cross while his right hip is already cocked to kick your knee backward through the joint. Watch the clavicles. The collarbones don't know how to tell an untruth. If the left shoulder dips three-sixteenths of an inch, the femur has to follow to keep him from tipping over."
 
-"I'm not watching your eyes," Maya said, her teeth grit behind tight lips. A thin sheen of perspiration glistened along her high Acadian cheekbones, catching the cold autumn sunlight. "I'm calculating your moment of inertia. You have two hundred and thirty-five pounds of mass concentrated within an eighteen-inch radius of your central spine. The equation for rotational inertia is $I = \sum m_i r_i^2$. Sweeping you at the ankles with a three-pound lever arm is like trying to knock over a bridge pier with a broom handle."
+"I'm not watching your eyes," Maya said, her teeth grit behind tight lips. A thin sheen of perspiration glistened along her high cheekbones, catching the cold autumn sunlight. "I'm calculating your moment of inertia. You have two hundred and thirty-five pounds of mass concentrated within an eighteen-inch radius of your central spine. The equation for rotational inertia is $I = \sum m_i r_i^2$. Sweeping you at the ankles with a three-pound lever arm is like trying to knock over a bridge pier with a broom handle."
 
 "Then don't sweep the pier," Mac said mildly, shifting his weight by half an inch so the frost-cured shale under his right boot gave a faint, solid *crunch*. "Sweep the water that runs under it. If the river can't push the rock, the river flows around it until the rock forgets which way was up. Come."
 
@@ -492,7 +492,7 @@ The world came back slowly, tasting of copper, wood smoke, and red river silt.
 
 Maya lay on her side in the drainage ditch forty feet from where the trestle had stood. Above her, a towering column of black, greasy smoke was boiling into the cold turquoise sky, carrying the stench of burned dynamite and charred spruce timber. The trestle was gone—shattered into a smoking crater of splintered bents and twisted sixty-pound rail that lay half-submerged in the sucking red mud of the creek bed thirty feet below.
 
-Her left shoulder was screaming with fire. Her ribs on the right side ached with every shallow, agonizing breath—bruised, if not cracked, by the blast wave. Warm blood was trickling down her left cheek from a jagged two-inch laceration along her hairline, dripping off her Acadian jawline onto the torn denim of her collar. Her trousers were shredded at both knees, her skin raw and weeping where the shale gravel had flayed the flesh.
+Her left shoulder was screaming with fire. Her ribs on the right side ached with every shallow, agonizing breath—bruised, if not cracked, by the blast wave. Warm blood was trickling down her left cheek from a jagged two-inch laceration along her hairline, dripping off her sharp jawline onto the torn denim of her collar. Her trousers were shredded at both knees, her skin raw and weeping where the shale gravel had flayed the flesh.
 
 She was beaten. She was battered. Her vision swam in gray, nauseous waves.
 
