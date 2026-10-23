@@ -45,7 +45,11 @@
 * **Carried Weapons:** **None.**
 * **Martial Discipline (The Master In-Fighter):**
   * Mac is no slouch in the pocket. Having survived centuries, he possesses elite, time-tested mastery of bare-knuckle pugilism, old-school classical boxing, dirty boxing, and indigenous close-quarters grappling.
-  * **The Figure-Eight Kinetic Roll:** He rolls his torso and head in a continuous, rhythmic figure-eight pendulum—bobbing and weaving beneath swinging axes, bayonets, and claws without ever halting his momentum. Maya’s engineering eye recognizes it as a harmonic kinetic loop ($\infty$): storing elastic torque in the hips and spinal column, slipping clean under strikes, and unleashing alternating, devastating short-range shovel hooks with crushing cyclic acceleration. (Never called by pop-culture names; purely described through visceral Maritime physics).
+  * **The High-Speed Figure-Eight Onslaught (The Kinetic Pendulum Barrage):**
+    * When Mac commits to ending a threat in close quarters, he lowers his hips and initiates a terrifying, high-cadence **figure-eight harmonic weave** ($\infty$). 
+    * His head and shoulders dip and roll with blinding velocity—the air whistling past his ears like turbine blades as his 235-lb frame cuts through the wind. 
+    * Opponents swing wild; their blades and muzzles slice empty air as his head weaves beneath them. Once the pendulum catches its rhythm, he unleashes a relentless, high-speed barrage of alternating left and right shovel hooks. 
+    * The rebound of each punch feeds directly into the acceleration of the next, generating a compound kinetic surge with zero deceleration dead-zones. It is an unrelenting hydraulic press of bare-knuckle violence that shatters bone, caves in steel plates, and lifts two-hundred-pound men clean off their boots in a storm of rhythmic, thunderous impacts. (Strictly in-universe Maritime physics; never named with meta terms).
   * **In-Fighting Prowess:** Slips punches by half an inch, works the collar-tie clinch, and delivers short, six-inch shovel hooks that deliver devastating kinetic shock straight into ribs and liver. Zero wild haymakers; pure technical precision, head movement, and devastating phone-booth violence.
 * **Combat Doctrine:** Mac carries no steel, sidearms, or bladed weapons on his belt. His skeleton is the anvil; his fists are the hammer; the bedrock is his anchor.
 * **Combat Cadence:**
