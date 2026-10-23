@@ -30,7 +30,11 @@
     4. *The Look Up:* His head lifts, locking eyes directly with the target.
     5. *The Azure Ignition:* The deep, incandescent azure blue ignites in his irises—cold, subterranean fire blazing in the dark.
     6. *Violence:* Instantaneous, terrifying, unstoppable finality. Bulletproof density locks in, physical force multiplies, and the threat is ended without hesitation or wasted motion.
-  * **The Inevitable End:** *If you push him, he'll kill you.* No hesitation, no posturing, no theatrical movie one-liners, and no half-measures. When pushed past the line—when someone threatens Maya, his hearth, or violates the sovereign sanctuary of the headland—he ends them with cold, terrifying finality. He can catch a swinging axe by the blade, snap forged iron crowbars like brittle twigs, and neutralize armed hostiles without breaking a sweat or raising his voice.
+  * **The Inevitable End (Absolute Lethality Against Killing Intent):**
+    * *If you bring killing intent to the headland, you do not live.* No hesitation, no posturing, no theatrical movie one-liners, and no half-measures. Anyone who faces Mac with intent to murder Maya, slaughter his animals, or butcher his hearth is ended with cold, terrifying finality. He does not keep prisoners of war who came to kill.
+    * **The Post-Battle Exhaustion & The Caregiver Role-Reversal:**
+      * Channeling exponential *Mntu* through the high-speed figure-eight onslaught generates immense internal thermal and vascular friction. When the battle ends and the killers are dead, Mac is **deeply, bone-wearily exhausted**—his eyes dim, his forearms steam, and his titan frame needs rest.
+      * This triggers the pivotal romantic and sovereign role-reversal: **it is Maya's turn to take care of him**. Battered though she is, Maya steps up to baby him—tending his frost-scorched knuckles with warm water and herbal salves, tucking him into dry wool blankets by the thermal hearth, feeding him rich hot broth, and fiercely guarding the homestead while the titan rests. Scar curls up on his chest like an eight-ounce furry hot-water bottle.
   * Combined with an intelligence network of every bird, wolf, and beast within ten miles, ambushing him is impossible.
 * **Animal Communion (Teachable):**
   * True mutual comprehension. Mac speaks in voice, posture, and intent, and animals understand him completely. Conversely, he hears and comprehends their thoughts, instincts, territorial disputes, and perspectives.
