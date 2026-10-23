@@ -149,3 +149,35 @@ Mac has spent ten patient years establishing this sanctuary on the high ridge ov
   * **The Intimacy & Electric Tension:** Living together in the intimate isolation of the headland lighthouse, their physical closeness is charged with subtle electricity—Mac's calloused hands guiding her hips and stance at the forge and on the sparring floor, tending each other's injuries, standing shoulder-to-shoulder in the high lantern room, and sharing the deep warmth of the stone hearth.
   * When Maya exhausts her anger against his chest, collapsing into him, it is not a child crying to a father—it is a proud, fierce woman finally lowering her guard and collapsing into the arms of the one man strong enough to hold her entire world, the man she is falling deeply in love with.
 * Becomes Mac’s co-defender of the valley, student in animal communion, and the reluctant, amused landlord of Scar the squirrel.
+
+
+---
+
+## 4. Crafting, Teaching, and Practical Engineering (Core Narrative Pillar)
+
+### The Philosophy of Craft & Mentorship
+* **The Master and the Engineer:** Mac is an ancient craftsman who understands the marrow of physical matter; Maya is a trained mechanical engineer (Dalhousie) who understands the mathematics, vectors, and physics of forces. Their collaboration is a masterclass in grounded, tactile worldbuilding.
+* **Crafting in Stages:** Every tool, weapon, structure, and survival item is built step by step in front of Maya, with her actively participating in the labor (pumping bellows, shaping handles, pressure-flaking stone, saddle-stitching leather).
+* **The Pedagogical Dynamic:** Mac does not lecture; he teaches through tactile demonstration, asking probing questions, and having Maya feel the balance, color, grain, and temperature of materials.
+
+### The Impossible Observed (Kinap Biology vs. Engineering Limits)
+* **The Dalhousie Calculations:** Maya constantly calculates the mechanical limits of biological tissue (bone compressive strength, moment arms, torque on lumbar vertebrae, kinetic energy of impact).
+* **Defying Biological Failure:**
+  * Lifting the 837-lb *Krupp Essen 1912* naval armor block without spinal collapse (absorbing 15,000 in-lbs of torque into the pelvic arch).
+  * Swinging the 32-lb sintered tungsten-carbide sledge at 80 bpm with zero lactic fatigue or ulnar collateral ligament shear (generating 2,400 Joules of kinetic force per strike).
+  * Radiant heat immunity and cold-weld compression with zero scale inclusions.
+* **Mac's Core Truth:** Mac needs no weapons for himself. His body is the weapon; his skeleton is the anvil; the bedrock is the hammer. Every weapon he creates is solely to balance the scales for Maya's mortal frame.
+
+### The Combat Arsenal & The Four-Tier Doctrine
+1. **The Seasoned White Ash Staff (Five Feet Two Inches):**
+   * *Role:* Kinetic distance control, sweeping legs, shattering kneecaps, holding doorways and thresholds. Owns the ground six feet out.
+2. **The 320-Layer Damascus Drop-Point Fighter (Six and a Half Inches):**
+   * *Composition:* 1910 Nicholson farrier's rasp (1095 crucible carbon steel) + locomotive leaf spring (5160 Cr-Mn steel) + Swedish charcoal iron.
+   * *Features:* 320 micro-layers, differential clay jacket (*hamon* temper line), glass-hard 63 HRC edge, tough shock-absorbing spine. Contoured heritage applewood handle scaled to Maya's hand arches; cold-peened copper bus-bar rivets; wet-formed, hot-waxed (*cuir bouilli*) vegetable-tanned sheath with copper welt, worn at a 20-degree forward cant.
+   * *Role:* Close-quarters grappling, cutting muscle and tendon cables, clearing grapples, carving through heavy wool.
+3. **The Molecular Razor / Obsidian Neck Scalpel (Three Inches):**
+   * *Composition:* Ancient Pacific Northwest volcanic glass (*Kekwet*), conchoidal fracture via moose-antler billet and copper pressure flaker.
+   * *Features:* 3-nanometer edge (30 Angstroms / single molecular chains of silica). Mounted in white cedar with charcoal-bone tempered spruce pitch, clamped by boiled deer sinew and sealed in balsam fir rosin.
+   * *Role:* Emergency hideout weapon worn flat over sternum. Slices through cellular walls without crushing nerve sheaths or encountering resistance.
+4. **The Retreat Covenant:**
+   * If outnumbered by three or four, or if heavy firearms speak from the treeline, Maya drops pride, refuses to die for bravado, and runs straight to Mac.
