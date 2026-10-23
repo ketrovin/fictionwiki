@@ -45,7 +45,8 @@
 * **Carried Weapons:** **None.**
 * **Martial Discipline (The Master In-Fighter):**
   * Mac is no slouch in the pocket. Having survived centuries, he possesses elite, time-tested mastery of bare-knuckle pugilism, old-school classical boxing, dirty boxing, and indigenous close-quarters grappling.
-  * **In-Fighting Prowess:** He slips punches by half an inch, bobs inside the arc of swinging blades, works the collar-tie clinch, and delivers short, six-inch shovel hooks that deliver devastating kinetic shock straight into ribs and liver. Zero wild haymakers; pure technical precision, head movement, and devastating phone-booth violence.
+  * **The Figure-Eight Kinetic Roll:** He rolls his torso and head in a continuous, rhythmic figure-eight pendulum—bobbing and weaving beneath swinging axes, bayonets, and claws without ever halting his momentum. Maya’s engineering eye recognizes it as a harmonic kinetic loop ($\infty$): storing elastic torque in the hips and spinal column, slipping clean under strikes, and unleashing alternating, devastating short-range shovel hooks with crushing cyclic acceleration. (Never called by pop-culture names; purely described through visceral Maritime physics).
+  * **In-Fighting Prowess:** Slips punches by half an inch, works the collar-tie clinch, and delivers short, six-inch shovel hooks that deliver devastating kinetic shock straight into ribs and liver. Zero wild haymakers; pure technical precision, head movement, and devastating phone-booth violence.
 * **Combat Doctrine:** Mac carries no steel, sidearms, or bladed weapons on his belt. His skeleton is the anvil; his fists are the hammer; the bedrock is his anchor.
 * **Combat Cadence:**
   1. *Peaceful Arrival:* Open posture, loose palms, calm baritone voice offering intruders a peaceful retreat.
