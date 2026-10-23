@@ -46,10 +46,14 @@
 * **Martial Discipline (The Master In-Fighter):**
   * Mac is no slouch in the pocket. Having survived centuries, he possesses elite, time-tested mastery of bare-knuckle pugilism, old-school classical boxing, dirty boxing, and indigenous close-quarters grappling.
   * **The High-Speed Figure-Eight Onslaught (The Kinetic Pendulum Barrage):**
-    * When Mac commits to ending a threat in close quarters, he lowers his hips and initiates a terrifying, high-cadence **figure-eight harmonic weave** ($\infty$). 
+    * When Mac commits to ending an unnatural or heavily armored threat, he lowers his hips and initiates a terrifying, high-cadence **figure-eight harmonic weave** ($\infty$). 
     * His head and shoulders dip and roll with blinding velocity—the air whistling past his ears like turbine blades as his 235-lb frame cuts through the wind. 
-    * Opponents swing wild; their blades and muzzles slice empty air as his head weaves beneath them. Once the pendulum catches its rhythm, he unleashes a relentless, high-speed barrage of alternating left and right shovel hooks. 
-    * The rebound of each punch feeds directly into the acceleration of the next, generating a compound kinetic surge with zero deceleration dead-zones. It is an unrelenting hydraulic press of bare-knuckle violence that shatters bone, caves in steel plates, and lifts two-hundred-pound men clean off their boots in a storm of rhythmic, thunderous impacts. (Strictly in-universe Maritime physics; never named with meta terms).
+    * Opponents swing wild; their blades, bayonets, or frost-claws slice empty air as his head weaves beneath them. 
+    * **The Exponential Kinap Escalation:** If an opponent possesses the supernatural density to tank the initial hits (such as the petrified frost-armor of a **Chenoo**), Mac does not reset or back away. Because a Kinap is as strong as he *needs* or *wants* to be in any given moment, Mac **willfully dials up the kinetic mass behind each alternating hook**:
+      - *Strikes 1–2:* 2,500 Joules. Sounds like heavy sledges on hardwood; cracks surface permafrost.
+      - *Strikes 3–4:* 8,000 Joules. The air screams; shockwaves blow the red mud off the flats in concentric rings.
+      - *Strikes 5–6:* 25,000 Joules. Sounds like naval artillery firing point-blank; vapor cones condense around his bare fists as each blow breaks the local sound barrier in phone-booth distance.
+      - *Strikes 7+:* Tectonic-level hydraulic devastation. The compound acceleration and exponential mass transfer buckle petrified bone, drive the monster's legs two feet deep into solid shale, and punch straight through frozen chest cavities to crush black ice hearts to steam. (Strictly in-universe Maritime physics; never named with meta terms).
   * **In-Fighting Prowess:** Slips punches by half an inch, works the collar-tie clinch, and delivers short, six-inch shovel hooks that deliver devastating kinetic shock straight into ribs and liver. Zero wild haymakers; pure technical precision, head movement, and devastating phone-booth violence.
 * **Combat Doctrine:** Mac carries no steel, sidearms, or bladed weapons on his belt. His skeleton is the anvil; his fists are the hammer; the bedrock is his anchor.
 * **Combat Cadence:**
